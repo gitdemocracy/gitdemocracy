@@ -15,7 +15,7 @@ BDFL: @aveao
 - Everyone with a Github account can send a PR.
 - - You may only send a PR while you don't have one in voting.
 - - PRs currently accepting votes may not be updated. Updating it will get it closed. This behavior may changed in the future to merge the inital proposal.
-- Each PR that's being voted on has 7 days (168 hours). 
+- Each PR that's being voted on has a day (24 hours). 
 - - After this period, it'll either be merged or closed, based on the majority of votes.
 - You may vote for or against the PR by reacting to it with a :thumbsup: or a :thumbsdown:.
 - - **Only accounts created before 2020-01-01 00:00 (UTC) may vote.**
