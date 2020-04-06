@@ -25,15 +25,28 @@ BDFL: @aveao
 
 ### Content Rules
 
-- PRs proposing new files may only consist of `.md` files. As this repo is on Github, it'll be rendered with [GFM](https://help.github.com/en/github/writing-on-github/basic-writing-and-formatting-syntax), so keep that in mind if you want your PRs to look good.
-- PRs proposing changes to existing `.md` files (except `README.md`) are allowed.
-- - Under specific circumstances, changes to this file may be accepted by BDFL only (changes to prevent loopholes in rules, wording improvements etc).
-- PRs deleting existing `.md` files (except `README.md`) are currently NOT allowed.
-- File contents may only contain ASCII characters.
+- PRs proposing changes to existing files of allowed filetypes are allowed.
+- - Unless they're to banned files, see below. Under specific circumstances, changes to these files may be accepted by BDFL only (changes to prevent loopholes in rules, wording improvements etc).
+- PRs deleting existing files are currently NOT allowed.
 - One may not send a PR with a content that's too similar to one that's already in voting. This is up to discretion of the BDFL, but may also be automated in the future.
 - - You should wait until the other PR is closed or merged.
 - - If it gets merged, you may send a PR with your changes.
-- No spam. File contents may not include email or physical addresses, phone numbers, website addresses etc. Nothing that may get this repo banned, at BDFL's discretion.
+- No spam. File contents may not include email or physical addresses, phone numbers, website addresses etc. Nothing copyrighted.
+- - Basically, nothing that may get this repo banned, at BDFL's discretion.
+- - Please also try to keep PR sizes not-huge, so that Github doesn't block the repo.
+
+### Allowed filetypes
+
+- `.md` files. As this repo is on Github, they'll be rendered with [GFM](https://help.github.com/en/github/writing-on-github/basic-writing-and-formatting-syntax), so keep that in mind if you want your PRs to look good.
+- `.txt` files
+- Code files. If you're pushing an entire project, please try to contain it in a relevant folder.
+- - Nothing that's binary. This includes but isn't limited to build artifacts, images or any other assets.
+
+### Banned files
+
+- `README.md`
+- `LICENSE` (also violates filetype whitelist)
+- `.gitignore` (also violates filetype whitelist)
 
 ## How
 
