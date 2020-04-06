@@ -26,7 +26,7 @@ BDFL: @aveao
 ### Content Rules
 
 - PRs proposing new files may only consist of `.md` files. As this repo is on Github, it'll be rendered with [GFM](https://help.github.com/en/github/writing-on-github/basic-writing-and-formatting-syntax), so keep that in mind if you want your PRs to look good.
-- PRs proposing changes to existing files (except `README.md`) are allowed.
+- PRs proposing changes to existing `.md` files (except `README.md`) are allowed.
 - - Under specific circumstances, changes to this file may be accepted by BDFL only (changes to prevent loopholes in rules, wording improvements etc).
 - File contents may only contain ASCII characters.
 - One may not send a PR with a content that's too similar to one that's already in voting. This is up to discretion of the BDFL, but may also be automated in the future.
