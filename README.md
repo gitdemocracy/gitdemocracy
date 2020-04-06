@@ -13,7 +13,7 @@ BDFL: @aveao
 ### Basic Rules
 
 - Everyone with a Github account can send a PR.
-- - You may only send a PR while you don't have one in voting.
+- - You may only have 3 (three) PRs open-for-voting at once.
 - - PRs currently accepting votes may not be updated. Updating it will get it closed. This behavior may changed in the future to merge the inital proposal.
 - Each PR that's being voted on has a day (24 hours). 
 - - After this period, it'll either be merged or closed, based on the majority of votes.
