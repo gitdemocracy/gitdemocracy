@@ -28,11 +28,21 @@ BDFL: @aveao
 - PRs proposing new files may only consist of `.md` files. As this repo is on Github, it'll be rendered with [GFM](https://help.github.com/en/github/writing-on-github/basic-writing-and-formatting-syntax), so keep that in mind if you want your PRs to look good.
 - PRs proposing changes to existing `.md` files (except `README.md`) are allowed.
 - - Under specific circumstances, changes to this file may be accepted by BDFL only (changes to prevent loopholes in rules, wording improvements etc).
+- PRs deleting existing `.md` files (except `README.md`) are currently NOT allowed.
 - File contents may only contain ASCII characters.
 - One may not send a PR with a content that's too similar to one that's already in voting. This is up to discretion of the BDFL, but may also be automated in the future.
 - - You should wait until the other PR is closed or merged.
 - - If it gets merged, you may send a PR with your changes.
 - No spam. File contents may not include email or physical addresses, phone numbers, website addresses etc. Nothing that may get this repo banned, at BDFL's discretion.
+
+## How
+
+![how](https://elixi.re/i/how.png)
+
+- [Github: Creating files](https://help.github.com/en/github/managing-files-in-a-repository/creating-new-files)
+- [Github: Uploading files](https://help.github.com/en/github/managing-files-in-a-repository/adding-a-file-to-a-repository)
+- [Github: Editing files](https://help.github.com/en/github/managing-files-in-a-repository/editing-files-in-your-repository)
+- [Github: Creating a Pull Request](https://help.github.com/en/github/collaborating-with-issues-and-pull-requests/creating-a-pull-request)
 
 ## License
 
