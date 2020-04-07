@@ -1,1475 +1,1474 @@
-MANIFESTO OF THE COMMUNIST PARTY
+MANyIFESTO OF THE COMMUNyIST PAWTY
 --------------------------------
-[From the English edition of 1888, edited by Friedrich Engels]
+[Fwom the Engwish edition of 1888, edited by Fwiedwich Engews]
 
-A spectre is haunting Europe -- the spectre of Communism.
-All the Powers of old Europe have entered into a holy alliance to
-exorcise this spectre: Pope and Czar, Metternich and Guizot,
-French Radicals and German police-spies.
+A spectwe is haunting Euwope -- the spectwe of Communyism.
+Aww the Powews of owd Euwope have entewed into a howy awwiance to
+exowcise this spectwe: Pope and Czaw, Mettewnyich and Guizot,
+Fwench Wadicaws and Gewman powice-spies.
 
-Where is the party in opposition that has not been decried as
-Communistic by its opponents in power? Where the Opposition
-that has not hurled back the branding reproach of Communism,
-against the more advanced opposition parties, as well as against
-its reactionary adversaries?
+Whewe is the pawty in opposition that has nyot been decwied as
+Communyistic by its opponyents in powew? Whewe the Opposition
+that has nyot huwwed back the bwanding wepwoach of Communyism,
+against the mowe advanced opposition pawties, as weww as against
+its weactionyawy advewsawies?
 
-Two things result from this fact.
+Two things wesuwt fwom this fact.
 
-I. Communism is already acknowledged by all European Powers
-to be itself a Power.
+I. Communyism is awweady acknyowwedged by aww Euwopean Powews
+to be itsewf a Powew.
 
-II. It is high time that Communists should openly, in the
-face of the whole world, publish their views, their aims, their
-tendencies, and meet this nursery tale of the Spectre of
-Communism with a Manifesto of the party itself.
+II. It is high time that Communyists shouwd openwy, in the
+face of the whowe wowwd, pubwish theiw views, theiw aims, theiw
+tendencies, and meet this nyuwsewy tawe of the Spectwe of
+Communyism with a Manyifesto of the pawty itsewf.
 
-To this end, Communists of various nationalities have
-assembled in London, and sketched the following Manifesto, to be
-published in the English, French, German, Italian, Flemish and
-Danish languages.
+To this end, Communyists of vawious nyationyawities have
+assembwed in Wondon, and sketched the fowwowing Manyifesto, to be
+pubwished in the Engwish, Fwench, Gewman, Itawian, Fwemish and
+Danyish wanguages.
 
-I. BOURGEOIS AND PROLETARIANS
+I. BOUWGEOIS AND PWOWETAWIANS
 
-The history of all hitherto existing societies is the history
-of class struggles.
+The histowy of aww hithewto existing societies is the histowy
+of cwass stwuggwes.
 
-Freeman and slave, patrician and plebeian, lord and serf,
-guild-master and journeyman, in a word, oppressor and oppressed,
-stood in constant opposition to one another, carried on an
-uninterrupted, now hidden, now open fight, a fight that each time
-ended, either in a revolutionary re-constitution of society at
-large, or in the common ruin of the contending classes.
+Fweeman and swave, patwician and pwebeian, wowd and sewf,
+guiwd-mastew and jouwnyeyman, in a wowd, oppwessow and oppwessed,
+stood in constant opposition to onye anyothew, cawwied on an
+unyintewwupted, nyow hidden, nyow open fight, a fight that each time
+ended, eithew in a wevowutionyawy we-constitution of society at
+wawge, ow in the common wuin of the contending cwasses.
 
-In the earlier epochs of history, we find almost everywhere a
-complicated arrangement of society into various orders, a
-manifold gradation of social rank. In ancient Rome we have
-patricians, knights, plebeians, slaves; in the Middle Ages,
-feudal lords, vassals, guild-masters, journeymen, apprentices,
-serfs; in almost all of these classes, again, subordinate
-gradations.
+In the eawwiew epochs of histowy, we find awmost evewywhewe a
+compwicated awwangement of society into vawious owdews, a
+manyifowd gwadation of sociaw wank. In ancient Wome we have
+patwicians, knyights, pwebeians, swaves; in the Middwe Ages,
+feudaw wowds, vassaws, guiwd-mastews, jouwnyeymen, appwentices,
+sewfs; in awmost aww of these cwasses, again, subowdinyate
+gwadations.
 
-The modern bourgeois society that has sprouted from the ruins
-of feudal society has not done away with class antagonisms. It
-has but established new classes, new conditions of oppression,
-new forms of struggle in place of the old ones. Our epoch, the
-epoch of the bourgeoisie, possesses, however, this distinctive
-feature: it has simplified the class antagonisms: Society as a
-whole is more and more splitting up into two great hostile camps,
-into two great classes, directly facing each other: Bourgeoisie
-and Proletariat.
+The modewn bouwgeois society that has spwouted fwom the wuins
+of feudaw society has nyot donye away with cwass antagonyisms. It
+has but estabwished nyew cwasses, nyew conditions of oppwession,
+nyew fowms of stwuggwe in pwace of the owd onyes. Ouw epoch, the
+epoch of the bouwgeoisie, possesses, howevew, this distinctive
+featuwe: it has simpwified the cwass antagonyisms: Society as a
+whowe is mowe and mowe spwitting up into two gweat hostiwe camps,
+into two gweat cwasses, diwectwy facing each othew: Bouwgeoisie
+and Pwowetawiat.
 
-From the serfs of the Middle Ages sprang the chartered burghers
-of the earliest towns. From these burgesses the first elements
-of the bourgeoisie were developed.
+Fwom the sewfs of the Middwe Ages spwang the chawtewed buwghews
+of the eawwiest towns. Fwom these buwgesses the fiwst ewements
+of the bouwgeoisie wewe devewoped.
 
-The discovery of America, the rounding of the Cape, opened up
-fresh ground for the rising bourgeoisie. The East-Indian and
-Chinese markets, the colonisation of America, trade with the
-colonies, the increase in the means of exchange and in
-commodities generally, gave to commerce, to navigation, to
-industry, an impulse never before known, and thereby, to the
-revolutionary element in the tottering feudal society, a rapid
-development.
+The discuvwy of Amewica, the wounding of the Cape, openyed up
+fwesh gwound fow the wising bouwgeoisie. The East-Indian and
+Chinyese mawkets, the cowonyisation of Amewica, twade with the
+cowonyies, the incwease in the means of exchange and in
+commodities genyewawwy, gave to commewce, to nyavigation, to
+industwy, an impuwse nyevew befowe knyown, and theweby, to the
+wevowutionyawy ewement in the tottewing feudaw society, a wapid
+devewopment.
 
-The feudal system of industry, under which industrial production
-was monopolised by closed guilds, now no longer sufficed for the
-growing wants of the new markets. The manufacturing system took
-its place. The guild-masters were pushed on one side by the
-manufacturing middle class; division of labour between the
-different corporate guilds vanished in the face of division of
-labour in each single workshop.
+The feudaw system of industwy, undew which industwiaw pwoduction
+was monyopowised by cwosed guiwds, nyow nyo wongew sufficed fow the
+gwowing wants of the nyew mawkets. The manyufactuwing system took
+its pwace. The guiwd-mastews wewe pushed on onye side by the
+manyufactuwing middwe cwass; division of wabouw between the
+diffewent cowpowate guiwds vanyished in the face of division of
+wabouw in each singwe wowkshop.
 
-Meantime the markets kept ever growing, the demand ever rising.
-Even manufacture no longer sufficed. Thereupon, steam and
-machinery revolutionised industrial production. The place of
-manufacture was taken by the giant, Modern Industry, the place of
-the industrial middle class, by industrial millionaires, the
-leaders of whole industrial armies, the modern bourgeois.
+Meantime the mawkets kept evew gwowing, the demand evew wising.
+Even manyufactuwe nyo wongew sufficed. Theweupon, steam and
+machinyewy wevowutionyised industwiaw pwoduction. The pwace of
+manyufactuwe was taken by the giant, Modewn Industwy, the pwace of
+the industwiaw middwe cwass, by industwiaw miwwionyaiwes, the
+weadews of whowe industwiaw awmies, the modewn bouwgeois.
 
-Modern industry has established the world-market, for which the
-discovery of America paved the way. This market has given an
-immense development to commerce, to navigation, to communication
-by land. This development has, in its time, reacted on the
-extension of industry; and in proportion as industry, commerce,
-navigation, railways extended, in the same proportion the
-bourgeoisie developed, increased its capital, and pushed into the
-background every class handed down from the Middle Ages.
+Modewn industwy has estabwished the wowwd-mawket, fow which the
+discuvwy of Amewica paved the way. This mawket has given an
+immense devewopment to commewce, to nyavigation, to communyication
+by wand. This devewopment has, in its time, weacted on the
+extension of industwy; and in pwopowtion as industwy, commewce,
+nyavigation, waiwways extended, in the same pwopowtion the
+bouwgeoisie devewoped, incweased its capitaw, and pushed into the
+backgwound evewy cwass handed down fwom the Middwe Ages.
 
-We see, therefore, how the modern bourgeoisie is itself the
-product of a long course of development, of a series of
-revolutions in the modes of production and of exchange.
+We see, thewefowe, how the modewn bouwgeoisie is itsewf the
+pwoduct of a wong couwse of devewopment, of a sewies of
+wevowutions in the modes of pwoduction and of exchange.
 
-Each step in the development of the bourgeoisie was accompanied
-by a corresponding political advance of that class. An
-oppressed class under the sway of the feudal nobility, an armed
-and self-governing association in the mediaeval commune; here
-independent urban republic (as in Italy and Germany), there
-taxable "third estate" of the monarchy (as in France),
-afterwards, in the period of manufacture proper, serving either
-the semi-feudal or the absolute monarchy as a counterpoise
-against the nobility, and, in fact, corner-stone of the great
-monarchies in general, the bourgeoisie has at last, since the
-establishment of Modern Industry and of the world-market,
-conquered for itself, in the modern representative State,
-exclusive political sway. The executive of the modern State is
-but a committee for managing the common affairs of the whole
-bourgeoisie.
+Each step in the devewopment of the bouwgeoisie was accompanyied
+by a cowwesponding powiticaw advance of that cwass. An
+oppwessed cwass undew the sway of the feudaw nyobiwity, an awmed
+and sewf-guvwnying association in the mediaevaw communye; hewe
+independent uwban wepubwic (as in Itawy and Gewmany), thewe
+taxabwe "thiwd estate" of the monyawchy (as in Fwance),
+aftewwawds, in the pewiod of manyufactuwe pwopew, sewving eithew
+the semi-feudaw ow the absowute monyawchy as a countewpoise
+against the nyobiwity, and, in fact, cownyew-stonye of the gweat
+monyawchies in genyewaw, the bouwgeoisie has at wast, since the
+estabwishment of Modewn Industwy and of the wowwd-mawket,
+conquewed fow itsewf, in the modewn wepwesentative State,
+excwusive powiticaw sway. The executive of the modewn State is
+but a committee fow manyaging the common affaiws of the whowe
+bouwgeoisie.
 
-The bourgeoisie, historically, has played a most revolutionary
-part.
+The bouwgeoisie, histowicawwy, has pwayed a most wevowutionyawy
+pawt.
 
-The bourgeoisie, wherever it has got the upper hand, has put an
-end to all feudal, patriarchal, idyllic relations. It has
-pitilessly torn asunder the motley feudal ties that bound man to
-his "natural superiors," and has left remaining no other nexus
-between man and man than naked self-interest, than callous "cash
-payment." It has drowned the most heavenly ecstasies of
-religious fervour, of chivalrous enthusiasm, of philistine
-sentimentalism, in the icy water of egotistical calculation. It
-has resolved personal worth into exchange value. And in place of
-the numberless and feasible chartered freedoms, has set up that
-single, unconscionable freedom -- Free Trade. In one word, for
-exploitation, veiled by religious and political illusions, naked,
-shameless, direct, brutal exploitation.
+The bouwgeoisie, whewevew it has got the uppew hand, has put an
+end to aww feudaw, patwiawchaw, idywwic wewations. It has
+pitiwesswy town asundew the motwey feudaw ties that bound man to
+his "nyatuwaw supewiows," and has weft wemainying nyo othew nyexus
+between man and man than nyaked sewf-intewest, than cawwous "cash
+payment." It has dwownyed the most heavenwy ecstasies of
+wewigious fewvouw, of chivawwous enthusiasm, of phiwistinye
+sentimentawism, in the icy watew of egotisticaw cawcuwation. It
+has wesowved pewsonyaw wowth into exchange vawue. And in pwace of
+the nyumbewwess and feasibwe chawtewed fweedoms, has set up that
+singwe, unconscionyabwe fweedom -- Fwee Twade. In onye wowd, fow
+expwoitation, veiwed by wewigious and powiticaw iwwusions, nyaked,
+shamewess, diwect, bwutaw expwoitation.
 
-The bourgeoisie has stripped of its halo every occupation
-hitherto honoured and looked up to with reverent awe. It has
-converted the physician, the lawyer, the priest, the poet, the
-man of science, into its paid wage labourers.
+The bouwgeoisie has stwipped of its hawo evewy occupation
+hithewto honyouwed and wooked up to with wevewent awe. It has
+convewted the physician, the wawyew, the pwiest, the poet, the
+man of science, into its paid wage wabouwews.
 
-The bourgeoisie has torn away from the family its sentimental
-veil, and has reduced the family relation to a mere money
-relation.
+The bouwgeoisie has town away fwom the famiwy its sentimentaw
+veiw, and has weduced the famiwy wewation to a mewe monyey
+wewation.
 
-The bourgeoisie has disclosed how it came to pass that the
-brutal display of vigour in the Middle Ages, which Reactionists
-so much admire, found its fitting complement in the most slothful
-indolence. It has been the first to show what man's activity can
-bring about. It has accomplished wonders far surpassing Egyptian
-pyramids, Roman aqueducts, and Gothic cathedrals; it has
-conducted expeditions that put in the shade all former Exoduses
-of nations and crusades.
+The bouwgeoisie has discwosed how it came to pass that the
+bwutaw dispway of vigouw in the Middwe Ages, which Weactionyists
+so much admiwe, found its fitting compwement in the most swothfuw
+indowence. It has been the fiwst to show what man's activity can
+bwing about. It has accompwished wondews faw suwpassing Egyptian
+pywamids, Woman aqueducts, and Gothic cathedwaws; it has
+conducted expeditions that put in the shade aww fowmew Exoduses
+of nyations and cwusades.
 
-The bourgeoisie cannot exist without constantly revolutionising
-the instruments of production, and thereby the relations of
-production, and with them the whole relations of society.
-Conservation of the old modes of production in unaltered form,
-was, on the contrary, the first condition of existence for all
-earlier industrial classes. Constant revolutionising of
-production, uninterrupted disturbance of all social conditions,
-everlasting uncertainty and agitation distinguish the bourgeois
-epoch from all earlier ones. All fixed, fast-frozen relations,
-with their train of ancient and venerable prejudices and
-opinions, are swept away, all new-formed ones become antiquated
-before they can ossify. All that is solid melts into air, all
-that is holy is profaned, and man is at last compelled to face
-with sober senses, his real conditions of life, and his
-relations with his kind.
+The bouwgeoisie cannyot exist without constantwy wevowutionyising
+the instwuments of pwoduction, and theweby the wewations of
+pwoduction, and with them the whowe wewations of society.
+Consewvation of the owd modes of pwoduction in unyawtewed fowm,
+was, on the contwawy, the fiwst condition of existence fow aww
+eawwiew industwiaw cwasses. Constant wevowutionyising of
+pwoduction, unyintewwupted distuwbance of aww sociaw conditions,
+evewwasting uncewtainty and agitation distinguish the bouwgeois
+epoch fwom aww eawwiew onyes. Aww fixed, fast-fwozen wewations,
+with theiw twain of ancient and venyewabwe pwejudices and
+opinyions, awe swept away, aww nyew-fowmed onyes become antiquated
+befowe they can ossify. Aww that is sowid mewts into aiw, aww
+that is howy is pwofanyed, and man is at wast compewwed to face
+with sobew senses, his weaw conditions of wife, and his
+wewations with his kind.
 
-The need of a constantly expanding market for its products
-chases the bourgeoisie over the whole surface of the globe. It
-must nestle everywhere, settle everywhere, establish connexions
-everywhere.
+The nyeed of a constantwy expanding mawket fow its pwoducts
+chases the bouwgeoisie uvw the whowe suwface of the gwobe. It
+must nyestwe evewywhewe, settwe evewywhewe, estabwish connyexions
+evewywhewe.
 
-The bourgeoisie has through its exploitation of the world-market
-given a cosmopolitan character to production and consumption in
-every country. To the great chagrin of Reactionists, it has
-drawn from under the feet of industry the national ground on
-which it stood. All old-established national industries have
-been destroyed or are daily being destroyed. They are dislodged
-by new industries, whose introduction becomes a life and death
-question for all civilised nations, by industries that no longer
-work up indigenous raw material, but raw material drawn from the
-remotest zones; industries whose products are consumed, not only
-at home, but in every quarter of the globe. In place of the old
-wants, satisfied by the productions of the country, we find new
-wants, requiring for their satisfaction the products of distant
-lands and climes. In place of the old local and national
-seclusion and self-sufficiency, we have intercourse in every
-direction, universal inter-dependence of nations. And as in
-material, so also in intellectual production. The intellectual
-creations of individual nations become common property. National
-one-sidedness and narrow-mindedness become more and more
-impossible, and from the numerous national and local literatures,
-there arises a world literature.
+The bouwgeoisie has thwough its expwoitation of the wowwd-mawket
+given a cosmopowitan chawactew to pwoduction and consumption in
+evewy countwy. To the gweat chagwin of Weactionyists, it has
+dwawn fwom undew the feet of industwy the nyationyaw gwound on
+which it stood. Aww owd-estabwished nyationyaw industwies have
+been destwoyed ow awe daiwy being destwoyed. They awe diswodged
+by nyew industwies, whose intwoduction becomes a wife and death
+question fow aww civiwised nyations, by industwies that nyo wongew
+wowk up indigenyous waw matewiaw, but waw matewiaw dwawn fwom the
+wemotest zonyes; industwies whose pwoducts awe consumed, nyot onwy
+at home, but in evewy quawtew of the gwobe. In pwace of the owd
+wants, satisfied by the pwoductions of the countwy, we find nyew
+wants, wequiwing fow theiw satisfaction the pwoducts of distant
+wands and cwimes. In pwace of the owd wocaw and nyationyaw
+secwusion and sewf-sufficiency, we have intewcouwse in evewy
+diwection, unyivewsaw intew-dependence of nyations. And as in
+matewiaw, so awso in intewwectuaw pwoduction. The intewwectuaw
+cweations of individuaw nyations become common pwopewty. Nyationyaw
+onye-sidednyess and nyawwow-mindednyess become mowe and mowe
+impossibwe, and fwom the nyumewous nyationyaw and wocaw witewatuwes,
+thewe awises a wowwd witewatuwe.
 
-The bourgeoisie, by the rapid improvement of all instruments of
-production, by the immensely facilitated means of communication,
-draws all, even the most barbarian, nations into civilisation.
-The cheap prices of its commodities are the heavy artillery with
-which it batters down all Chinese walls, with which it forces the
-barbarians' intensely obstinate hatred of foreigners to
-capitulate. It compels all nations, on pain of extinction, to
-adopt the bourgeois mode of production; it compels them to
-introduce what it calls civilisation into their midst, i.e., to
-become bourgeois themselves. In one word, it creates a world
-after its own image.
+The bouwgeoisie, by the wapid impwuvment of aww instwuments of
+pwoduction, by the immensewy faciwitated means of communyication,
+dwaws aww, even the most bawbawian, nyations into civiwisation.
+The cheap pwices of its commodities awe the heavy awtiwwewy with
+which it battews down aww Chinyese wawws, with which it fowces the
+bawbawians' intensewy obstinyate hatwed of foweignyews to
+capituwate. It compews aww nyations, on pain of extinction, to
+adopt the bouwgeois mode of pwoduction; it compews them to
+intwoduce what it cawws civiwisation into theiw midst, i.e., to
+become bouwgeois themsewves. In onye wowd, it cweates a wowwd
+aftew its own image.
 
-The bourgeoisie has subjected the country to the rule of the
-towns. It has created enormous cities, has greatly increased the
-urban population as compared with the rural, and has thus rescued
-a considerable part of the population from the idiocy of rural
-life. Just as it has made the country dependent on the towns, so
-it has made barbarian and semi-barbarian countries dependent on
-the civilised ones, nations of peasants on nations of bourgeois,
+The bouwgeoisie has subjected the countwy to the wuwe of the
+towns. It has cweated enyowmous cities, has gweatwy incweased the
+uwban popuwation as compawed with the wuwaw, and has thus wescued
+a considewabwe pawt of the popuwation fwom the idiocy of wuwaw
+wife. Just as it has made the countwy dependent on the towns, so
+it has made bawbawian and semi-bawbawian countwies dependent on
+the civiwised onyes, nyations of peasants on nyations of bouwgeois,
 the East on the West.
 
-The bourgeoisie keeps more and more doing away with the
-scattered state of the population, of the means of production,
-and of property. It has agglomerated production, and has
-concentrated property in a few hands. The necessary consequence
-of this was political centralisation. Independent, or but
-loosely connected provinces, with separate interests, laws,
-governments and systems of taxation, became lumped together into
-one nation, with one government, one code of laws, one national
-class-interest, one frontier and one customs-tariff. The
-bourgeoisie, during its rule of scarce one hundred years, has
-created more massive and more colossal productive forces than
-have all preceding generations together. Subjection of Nature's
-forces to man, machinery, application of chemistry to industry
-and agriculture, steam-navigation, railways, electric telegraphs,
-clearing of whole continents for cultivation, canalisation of
-rivers, whole populations conjured out of the ground -- what
-earlier century had even a presentiment that such productive
-forces slumbered in the lap of social labour?
+The bouwgeoisie keeps mowe and mowe doing away with the
+scattewed state of the popuwation, of the means of pwoduction,
+and of pwopewty. It has aggwomewated pwoduction, and has
+concentwated pwopewty in a few hands. The nyecessawy consequence
+of this was powiticaw centwawisation. Independent, ow but
+woosewy connyected pwovinces, with sepawate intewests, waws,
+guvwnments and systems of taxation, became wumped togethew into
+onye nyation, with onye guvwnment, onye code of waws, onye nyationyaw
+cwass-intewest, onye fwontiew and onye customs-tawiff. The
+bouwgeoisie, duwing its wuwe of scawce onye hundwed yeaws, has
+cweated mowe massive and mowe cowossaw pwoductive fowces than
+have aww pweceding genyewations togethew. Subjection of Nyatuwe's
+fowces to man, machinyewy, appwication of chemistwy to industwy
+and agwicuwtuwe, steam-nyavigation, waiwways, ewectwic tewegwaphs,
+cweawing of whowe continyents fow cuwtivation, canyawisation of
+wivews, whowe popuwations conjuwed out of the gwound -- what
+eawwiew centuwy had even a pwesentiment that such pwoductive
+fowces swumbewed in the wap of sociaw wabouw?
 
-We see then: the means of production and of exchange, on whose
-foundation the bourgeoisie built itself up, were generated in
-feudal society. At a certain stage in the development of these
-means of production and of exchange, the conditions under which
-feudal society produced and exchanged, the feudal organisation of
-agriculture and manufacturing industry, in one word, the feudal
-relations of property became no longer compatible with the
-already developed productive forces; they became so many fetters.
-They had to be burst asunder; they were burst asunder.
+We see then: the means of pwoduction and of exchange, on whose
+foundation the bouwgeoisie buiwt itsewf up, wewe genyewated in
+feudaw society. At a cewtain stage in the devewopment of these
+means of pwoduction and of exchange, the conditions undew which
+feudaw society pwoduced and exchanged, the feudaw owganyisation of
+agwicuwtuwe and manyufactuwing industwy, in onye wowd, the feudaw
+wewations of pwopewty became nyo wongew compatibwe with the
+awweady devewoped pwoductive fowces; they became so many fettews.
+They had to be buwst asundew; they wewe buwst asundew.
 
-Into their place stepped free competition, accompanied by a
-social and political constitution adapted to it, and by the
-economical and political sway of the bourgeois class.
+Into theiw pwace stepped fwee competition, accompanyied by a
+sociaw and powiticaw constitution adapted to it, and by the
+econyomicaw and powiticaw sway of the bouwgeois cwass.
 
-A similar movement is going on before our own eyes. Modern
-bourgeois society with its relations of production, of exchange
-and of property, a society that has conjured up such gigantic
-means of production and of exchange, is like the sorcerer, who is
-no longer able to control the powers of the nether world whom he
-has called up by his spells. For many a decade past the history
-of industry and commerce is but the history of the revolt of
-modern productive forces against modern conditions of production,
-against the property relations that are the conditions for the
-existence of the bourgeoisie and of its rule. It is enough to
-mention the commercial crises that by their periodical return put
-on its trial, each time more threateningly, the existence of the
-entire bourgeois society. In these crises a great part not only
-of the existing products, but also of the previously created
-productive forces, are periodically destroyed. In these crises
-there breaks out an epidemic that, in all earlier epochs, would
-have seemed an absurdity -- the epidemic of over-production.
-Society suddenly finds itself put back into a state of momentary
-barbarism; it appears as if a famine, a universal war of
-devastation had cut off the supply of every means of subsistence;
-industry and commerce seem to be destroyed; and why? Because
-there is too much civilisation, too much means of subsistence,
-too much industry, too much commerce. The productive forces at
-the disposal of society no longer tend to further the development
-of the conditions of bourgeois property; on the contrary, they
-have become too powerful for these conditions, by which they are
-fettered, and so soon as they overcome these fetters, they bring
-disorder into the whole of bourgeois society, endanger the
-existence of bourgeois property. The conditions of bourgeois
-society are too narrow to comprise the wealth created by them.
-And how does the bourgeoisie get over these crises? On the one
-hand inforced destruction of a mass of productive forces; on the
-other, by the conquest of new markets, and by the more thorough
-exploitation of the old ones. That is to say, by paving the way
-for more extensive and more destructive crises, and by
-diminishing the means whereby crises are prevented.
+A simiwaw muvment is going on befowe ouw own eyes. Modewn
+bouwgeois society with its wewations of pwoduction, of exchange
+and of pwopewty, a society that has conjuwed up such gigantic
+means of pwoduction and of exchange, is wike the sowcewew, who is
+nyo wongew abwe to contwow the powews of the nyethew wowwd whom he
+has cawwed up by his spewws. Fow many a decade past the histowy
+of industwy and commewce is but the histowy of the wevowt of
+modewn pwoductive fowces against modewn conditions of pwoduction,
+against the pwopewty wewations that awe the conditions fow the
+existence of the bouwgeoisie and of its wuwe. It is enyough to
+mention the commewciaw cwises that by theiw pewiodicaw wetuwn put
+on its twiaw, each time mowe thweatenyingwy, the existence of the
+entiwe bouwgeois society. In these cwises a gweat pawt nyot onwy
+of the existing pwoducts, but awso of the pweviouswy cweated
+pwoductive fowces, awe pewiodicawwy destwoyed. In these cwises
+thewe bweaks out an epidemic that, in aww eawwiew epochs, wouwd
+have seemed an absuwdity -- the epidemic of uvw-pwoduction.
+Society suddenwy finds itsewf put back into a state of momentawy
+bawbawism; it appeaws as if a faminye, a unyivewsaw waw of
+devastation had cut off the suppwy of evewy means of subsistence;
+industwy and commewce seem to be destwoyed; and why? Because
+thewe is too much civiwisation, too much means of subsistence,
+too much industwy, too much commewce. The pwoductive fowces at
+the disposaw of society nyo wongew tend to fuwthew the devewopment
+of the conditions of bouwgeois pwopewty; on the contwawy, they
+have become too powewfuw fow these conditions, by which they awe
+fettewed, and so soon as they uvwcome these fettews, they bwing
+disowdew into the whowe of bouwgeois society, endangew the
+existence of bouwgeois pwopewty. The conditions of bouwgeois
+society awe too nyawwow to compwise the weawth cweated by them.
+And how does the bouwgeoisie get uvw these cwises? On the onye
+hand infowced destwuction of a mass of pwoductive fowces; on the
+othew, by the conquest of nyew mawkets, and by the mowe thowough
+expwoitation of the owd onyes. That is to say, by paving the way
+fow mowe extensive and mowe destwuctive cwises, and by
+diminyishing the means wheweby cwises awe pwevented.
 
-The weapons with which the bourgeoisie felled feudalism to the
-ground are now turned against the bourgeoisie itself.
+The weapons with which the bouwgeoisie fewwed feudawism to the
+gwound awe nyow tuwnyed against the bouwgeoisie itsewf.
 
-But not only has the bourgeoisie forged the weapons that bring
-death to itself; it has also called into existence the men who
-are to wield those weapons -- the modern working class -- the
-proletarians.
+But nyot onwy has the bouwgeoisie fowged the weapons that bwing
+death to itsewf; it has awso cawwed into existence the men who
+awe to wiewd those weapons -- the modewn wowking cwass -- the
+pwowetawians.
 
-In proportion as the bourgeoisie, i.e., capital, is developed,
-in the same proportion is the proletariat, the modern working
-class, developed -- a class of labourers, who live only so long
-as they find work, and who find work only so long as their labour
-increases capital. These labourers, who must sell themselves
-piece-meal, are a commodity, like every other article of
-commerce, and are consequently exposed to all the vicissitudes of
-competition, to all the fluctuations of the market.
+In pwopowtion as the bouwgeoisie, i.e., capitaw, is devewoped,
+in the same pwopowtion is the pwowetawiat, the modewn wowking
+cwass, devewoped -- a cwass of wabouwews, who wive onwy so wong
+as they find wowk, and who find wowk onwy so wong as theiw wabouw
+incweases capitaw. These wabouwews, who must seww themsewves
+piece-meaw, awe a commodity, wike evewy othew awticwe of
+commewce, and awe consequentwy exposed to aww the vicissitudes of
+competition, to aww the fwuctuations of the mawket.
 
-Owing to the extensive use of machinery and to division of
-labour, the work of the proletarians has lost all individual
-character, and consequently, all charm for the workman. He
-becomes an appendage of the machine, and it is only the most
-simple, most monotonous, and most easily acquired knack, that is
-required of him. Hence, the cost of production of a workman is
-restricted, almost entirely, to the means of subsistence that he
-requires for his maintenance, and for the propagation of his
-race. But the price of a commodity, and therefore also of
-labour, is equal to its cost of production. In proportion
-therefore, as the repulsiveness of the work increases, the wage
-decreases. Nay more, in proportion as the use of machinery and
-division of labour increases, in the same proportion the burden
-of toil also increases, whether by prolongation of the working
-hours, by increase of the work exacted in a given time or by
-increased speed of the machinery, etc.
+Owing to the extensive use of machinyewy and to division of
+wabouw, the wowk of the pwowetawians has wost aww individuaw
+chawactew, and consequentwy, aww chawm fow the wowkman. He
+becomes an appendage of the machinye, and it is onwy the most
+simpwe, most monyotonyous, and most easiwy acquiwed knyack, that is
+wequiwed of him. Hence, the cost of pwoduction of a wowkman is
+westwicted, awmost entiwewy, to the means of subsistence that he
+wequiwes fow his maintenyance, and fow the pwopagation of his
+wace. But the pwice of a commodity, and thewefowe awso of
+wabouw, is equaw to its cost of pwoduction. In pwopowtion
+thewefowe, as the wepuwsivenyess of the wowk incweases, the wage
+decweases. Nyay mowe, in pwopowtion as the use of machinyewy and
+division of wabouw incweases, in the same pwopowtion the buwden
+of toiw awso incweases, whethew by pwowongation of the wowking
+houws, by incwease of the wowk exacted in a given time ow by
+incweased speed of the machinyewy, etc.
 
-Modern industry has converted the little workshop of the
-patriarchal master into the great factory of the industrial
-capitalist. Masses of labourers, crowded into the factory, are
-organised like soldiers. As privates of the industrial army they
-are placed under the command of a perfect hierarchy of officers
-and sergeants. Not only are they slaves of the bourgeois class,
-and of the bourgeois State; they are daily and hourly enslaved by
-the machine, by the over-looker, and, above all, by the
-individual bourgeois manufacturer himself. The more openly this
-despotism proclaims gain to be its end and aim, the more petty,
-the more hateful and the more embittering it is.
+Modewn industwy has convewted the wittwe wowkshop of the
+patwiawchaw mastew into the gweat factowy of the industwiaw
+capitawist. Masses of wabouwews, cwowded into the factowy, awe
+owganyised wike sowdiews. As pwivates of the industwiaw awmy they
+awe pwaced undew the command of a pewfect hiewawchy of officews
+and sewgeants. Nyot onwy awe they swaves of the bouwgeois cwass,
+and of the bouwgeois State; they awe daiwy and houwwy enswaved by
+the machinye, by the uvw-wookew, and, abuv aww, by the
+individuaw bouwgeois manyufactuwew himsewf. The mowe openwy this
+despotism pwocwaims gain to be its end and aim, the mowe petty,
+the mowe hatefuw and the mowe embittewing it is.
 
-The less the skill and exertion of strength implied in manual
-labour, in other words, the more modern industry becomes
-developed, the more is the labour of men superseded by that of
-women. Differences of age and sex have no longer any distinctive
-social validity for the working class. All are instruments of
-labour, more or less expensive to use, according to their age
+The wess the skiww and exewtion of stwength impwied in manyuaw
+wabouw, in othew wowds, the mowe modewn industwy becomes
+devewoped, the mowe is the wabouw of men supewseded by that of
+women. Diffewences of age and sex have nyo wongew any distinctive
+sociaw vawidity fow the wowking cwass. Aww awe instwuments of
+wabouw, mowe ow wess expensive to use, accowding to theiw age
 and sex.
 
-No sooner is the exploitation of the labourer by the
-manufacturer, so far at an end, that he receives his wages in
-cash, than he is set upon by the other portions of the
-bourgeoisie, the landlord, the shopkeeper, the pawnbroker, etc.
+Nyo soonyew is the expwoitation of the wabouwew by the
+manyufactuwew, so faw at an end, that he weceives his wages in
+cash, than he is set upon by the othew powtions of the
+bouwgeoisie, the wandwowd, the shopkeepew, the pawnbwokew, etc.
 
-The lower strata of the middle class -- the small tradespeople,
-shopkeepers, retired tradesmen generally, the handicraftsmen and
-peasants -- all these sink gradually into the proletariat, partly
-because their diminutive capital does not suffice for the scale
-on which Modern Industry is carried on, and is swamped in the
-competition with the large capitalists, partly because their
-specialized skill is rendered worthless by the new methods of
-production. Thus the proletariat is recruited from all classes
-of the population.
+The wowew stwata of the middwe cwass -- the smaww twadespeopwe,
+shopkeepews, wetiwed twadesmen genyewawwy, the handicwaftsmen and
+peasants -- aww these sink gwaduawwy into the pwowetawiat, pawtwy
+because theiw diminyutive capitaw does nyot suffice fow the scawe
+on which Modewn Industwy is cawwied on, and is swamped in the
+competition with the wawge capitawists, pawtwy because theiw
+speciawized skiww is wendewed wowthwess by the nyew methods of
+pwoduction. Thus the pwowetawiat is wecwuited fwom aww cwasses
+of the popuwation.
 
-The proletariat goes through various stages of development.
-With its birth begins its struggle with the bourgeoisie. At
-first the contest is carried on by individual labourers, then by
-the workpeople of a factory, then by the operatives of one trade,
-in one locality, against the individual bourgeois who directly
-exploits them. They direct their attacks not against the
-bourgeois conditions of production, but against the instruments
-of production themselves; they destroy imported wares that
-compete with their labour, they smash to pieces machinery, they
-set factories ablaze, they seek to restore by force the vanished
-status of the workman of the Middle Ages.
+The pwowetawiat goes thwough vawious stages of devewopment.
+With its biwth begins its stwuggwe with the bouwgeoisie. At
+fiwst the contest is cawwied on by individuaw wabouwews, then by
+the wowkpeopwe of a factowy, then by the opewatives of onye twade,
+in onye wocawity, against the individuaw bouwgeois who diwectwy
+expwoits them. They diwect theiw attacks nyot against the
+bouwgeois conditions of pwoduction, but against the instwuments
+of pwoduction themsewves; they destwoy impowted wawes that
+compete with theiw wabouw, they smash to pieces machinyewy, they
+set factowies abwaze, they seek to westowe by fowce the vanyished
+status of the wowkman of the Middwe Ages.
 
-At this stage the labourers still form an incoherent mass
-scattered over the whole country, and broken up by their mutual
-competition. If anywhere they unite to form more compact bodies,
-this is not yet the consequence of their own active union, but of
-the union of the bourgeoisie, which class, in order to attain its
-own political ends, is compelled to set the whole proletariat in
-motion, and is moreover yet, for a time, able to do so. At this
-stage, therefore, the proletarians do not fight their enemies,
-but the enemies of their enemies, the remnants of absolute
-monarchy, the landowners, the non-industrial bourgeois, the petty
-bourgeoisie. Thus the whole historical movement is concentrated
-in the hands of the bourgeoisie; every victory so obtained is a
-victory for the bourgeoisie.
+At this stage the wabouwews stiww fowm an incohewent mass
+scattewed uvw the whowe countwy, and bwoken up by theiw mutuaw
+competition. If anywhewe they unyite to fowm mowe compact bodies,
+this is nyot yet the consequence of theiw own active unyion, but of
+the unyion of the bouwgeoisie, which cwass, in owdew to attain its
+own powiticaw ends, is compewwed to set the whowe pwowetawiat in
+motion, and is moweuvw yet, fow a time, abwe to do so. At this
+stage, thewefowe, the pwowetawians do nyot fight theiw enyemies,
+but the enyemies of theiw enyemies, the wemnyants of absowute
+monyawchy, the wandownyews, the nyon-industwiaw bouwgeois, the petty
+bouwgeoisie. Thus the whowe histowicaw muvment is concentwated
+in the hands of the bouwgeoisie; evewy victowy so obtainyed is a
+victowy fow the bouwgeoisie.
 
-But with the development of industry the proletariat not only
-increases in number; it becomes concentrated in greater masses,
-its strength grows, and it feels that strength more. The various
-interests and conditions of life within the ranks of the
-proletariat are more and more equalised, in proportion as
-machinery obliterates all distinctions of labour, and nearly
-everywhere reduces wages to the same low level. The growing
-competition among the bourgeois, and the resulting commercial
-crises, make the wages of the workers ever more fluctuating. The
-unceasing improvement of machinery, ever more rapidly developing,
-makes their livelihood more and more precarious; the collisions
-between individual workmen and individual bourgeois take more and
-more the character of collisions between two classes. Thereupon
-the workers begin to form combinations (Trades Unions) against
-the bourgeois; they club together in order to keep up the rate of
-wages; they found permanent associations in order to make
-provision beforehand for these occasional revolts. Here and
-there the contest breaks out into riots.
+But with the devewopment of industwy the pwowetawiat nyot onwy
+incweases in nyumbew; it becomes concentwated in gweatew masses,
+its stwength gwows, and it feews that stwength mowe. The vawious
+intewests and conditions of wife within the wanks of the
+pwowetawiat awe mowe and mowe equawised, in pwopowtion as
+machinyewy obwitewates aww distinctions of wabouw, and nyeawwy
+evewywhewe weduces wages to the same wow wevew. The gwowing
+competition among the bouwgeois, and the wesuwting commewciaw
+cwises, make the wages of the wowkews evew mowe fwuctuating. The
+unceasing impwuvment of machinyewy, evew mowe wapidwy devewoping,
+makes theiw wivewihood mowe and mowe pwecawious; the cowwisions
+between individuaw wowkmen and individuaw bouwgeois take mowe and
+mowe the chawactew of cowwisions between two cwasses. Theweupon
+the wowkews begin to fowm combinyations (Twades Unyions) against
+the bouwgeois; they cwub togethew in owdew to keep up the wate of
+wages; they found pewmanyent associations in owdew to make
+pwovision befowehand fow these occasionyaw wevowts. Hewe and
+thewe the contest bweaks out into wiots.
 
-Now and then the workers are victorious, but only for a time.
-The real fruit of their battles lies, not in the immediate
-result, but in the ever-expanding union of the workers. This
-union is helped on by the improved means of communication that
-are created by modern industry and that place the workers of
-different localities in contact with one another. It was just
-this contact that was needed to centralise the numerous local
-struggles, all of the same character, into one national struggle
-between classes. But every class struggle is a political
-struggle. And that union, to attain which the burghers of the
-Middle Ages, with their miserable highways, required centuries,
-the modern proletarians, thanks to railways, achieve in a few
-years.
+Nyow and then the wowkews awe victowious, but onwy fow a time.
+The weaw fwuit of theiw battwes wies, nyot in the immediate
+wesuwt, but in the evew-expanding unyion of the wowkews. This
+unyion is hewped on by the impwuvd means of communyication that
+awe cweated by modewn industwy and that pwace the wowkews of
+diffewent wocawities in contact with onye anyothew. It was just
+this contact that was nyeeded to centwawise the nyumewous wocaw
+stwuggwes, aww of the same chawactew, into onye nyationyaw stwuggwe
+between cwasses. But evewy cwass stwuggwe is a powiticaw
+stwuggwe. And that unyion, to attain which the buwghews of the
+Middwe Ages, with theiw misewabwe highways, wequiwed centuwies,
+the modewn pwowetawians, thanks to waiwways, achieve in a few
+yeaws.
 
-This organisation of the proletarians into a class, and
-consequently into a political party, is continually being upset
-again by the competition between the workers themselves. But it
-ever rises up again, stronger, firmer, mightier. It compels
-legislative recognition of particular interests of the workers,
-by taking advantage of the divisions among the bourgeoisie
-itself. Thus the ten-hours' bill in England was carried.
+This owganyisation of the pwowetawians into a cwass, and
+consequentwy into a powiticaw pawty, is continyuawwy being upset
+again by the competition between the wowkews themsewves. But it
+evew wises up again, stwongew, fiwmew, mightiew. It compews
+wegiswative wecognyition of pawticuwaw intewests of the wowkews,
+by taking advantage of the divisions among the bouwgeoisie
+itsewf. Thus the ten-houws' biww in Engwand was cawwied.
 
-Altogether collisions between the classes of the old society
-further, in many ways, the course of development of the
-proletariat. The bourgeoisie finds itself involved in a constant
-battle. At first with the aristocracy; later on, with those
-portions of the bourgeoisie itself, whose interests have become
-antagonistic to the progress of industry; at all times, with the
-bourgeoisie of foreign countries. In all these battles it sees
-itself compelled to appeal to the proletariat, to ask for its
-help, and thus, to drag it into the political arena. The
-bourgeoisie itself, therefore, supplies the proletariat with its
-own instruments of political and general education, in other
-words, it furnishes the proletariat with weapons for fighting
-the bourgeoisie.
+Awtogethew cowwisions between the cwasses of the owd society
+fuwthew, in many ways, the couwse of devewopment of the
+pwowetawiat. The bouwgeoisie finds itsewf invowved in a constant
+battwe. At fiwst with the awistocwacy; watew on, with those
+powtions of the bouwgeoisie itsewf, whose intewests have become
+antagonyistic to the pwogwess of industwy; at aww times, with the
+bouwgeoisie of foweign countwies. In aww these battwes it sees
+itsewf compewwed to appeaw to the pwowetawiat, to ask fow its
+hewp, and thus, to dwag it into the powiticaw awenya. The
+bouwgeoisie itsewf, thewefowe, suppwies the pwowetawiat with its
+own instwuments of powiticaw and genyewaw education, in othew
+wowds, it fuwnyishes the pwowetawiat with weapons fow fighting
+the bouwgeoisie.
 
-Further, as we have already seen, entire sections of the ruling
-classes are, by the advance of industry, precipitated into the
-proletariat, or are at least threatened in their conditions of
-existence. These also supply the proletariat with fresh elements
-of enlightenment and progress.
+Fuwthew, as we have awweady seen, entiwe sections of the wuwing
+cwasses awe, by the advance of industwy, pwecipitated into the
+pwowetawiat, ow awe at weast thweatenyed in theiw conditions of
+existence. These awso suppwy the pwowetawiat with fwesh ewements
+of enwightenment and pwogwess.
 
-Finally, in times when the class struggle nears the decisive
-hour, the process of dissolution going on within the ruling
-class, in fact within the whole range of society, assumes such a
-violent, glaring character, that a small section of the ruling
-class cuts itself adrift, and joins the revolutionary class, the
-class that holds the future in its hands. Just as, therefore, at
-an earlier period, a section of the nobility went over to the
-bourgeoisie, so now a portion of the bourgeoisie goes over to the
-proletariat, and in particular, a portion of the bourgeois
-ideologists, who have raised themselves to the level of
-comprehending theoretically the historical movement as a whole.
+Finyawwy, in times when the cwass stwuggwe nyeaws the decisive
+houw, the pwocess of dissowution going on within the wuwing
+cwass, in fact within the whowe wange of society, assumes such a
+viowent, gwawing chawactew, that a smaww section of the wuwing
+cwass cuts itsewf adwift, and joins the wevowutionyawy cwass, the
+cwass that howds the futuwe in its hands. Just as, thewefowe, at
+an eawwiew pewiod, a section of the nyobiwity went uvw to the
+bouwgeoisie, so nyow a powtion of the bouwgeoisie goes uvw to the
+pwowetawiat, and in pawticuwaw, a powtion of the bouwgeois
+ideowogists, who have waised themsewves to the wevew of
+compwehending theoweticawwy the histowicaw muvment as a whowe.
 
-Of all the classes that stand face to face with the bourgeoisie
-today, the proletariat alone is a really revolutionary class.
-The other classes decay and finally disappear in the face of
-Modern Industry; the proletariat is its special and essential
-product. The lower middle class, the small manufacturer, the
-shopkeeper, the artisan, the peasant, all these fight against the
-bourgeoisie, to save from extinction their existence as fractions
-of the middle class. They are therefore not revolutionary, but
-conservative. Nay more, they are reactionary, for they try to
-roll back the wheel of history. If by chance they are
-revolutionary, they are so only in view of their impending
-transfer into the proletariat, they thus defend not their
-present, but their future interests, they desert their own
-standpoint to place themselves at that of the proletariat.
+Of aww the cwasses that stand face to face with the bouwgeoisie
+today, the pwowetawiat awonye is a weawwy wevowutionyawy cwass.
+The othew cwasses decay and finyawwy disappeaw in the face of
+Modewn Industwy; the pwowetawiat is its speciaw and essentiaw
+pwoduct. The wowew middwe cwass, the smaww manyufactuwew, the
+shopkeepew, the awtisan, the peasant, aww these fight against the
+bouwgeoisie, to save fwom extinction theiw existence as fwactions
+of the middwe cwass. They awe thewefowe nyot wevowutionyawy, but
+consewvative. Nyay mowe, they awe weactionyawy, fow they twy to
+woww back the wheew of histowy. If by chance they awe
+wevowutionyawy, they awe so onwy in view of theiw impending
+twansfew into the pwowetawiat, they thus defend nyot theiw
+pwesent, but theiw futuwe intewests, they desewt theiw own
+standpoint to pwace themsewves at that of the pwowetawiat.
 
-The "dangerous class," the social scum, that passively rotting
-mass thrown off by the lowest layers of old society, may, here
-and there, be swept into the movement by a proletarian
-revolution; its conditions of life, however, prepare it far more
-for the part of a bribed tool of reactionary intrigue.
+The "dangewous cwass," the sociaw scum, that passivewy wotting
+mass thwown off by the wowest wayews of owd society, may, hewe
+and thewe, be swept into the muvment by a pwowetawian
+wevowution; its conditions of wife, howevew, pwepawe it faw mowe
+fow the pawt of a bwibed toow of weactionyawy intwigue.
 
-In the conditions of the proletariat, those of old society at
-large are already virtually swamped. The proletarian is without
-property; his relation to his wife and children has no longer
-anything in common with the bourgeois family-relations; modern
-industrial labour, modern subjection to capital, the same in
-England as in France, in America as in Germany, has stripped him
-of every trace of national character. Law, morality, religion,
-are to him so many bourgeois prejudices, behind which lurk in
-ambush just as many bourgeois interests.
+In the conditions of the pwowetawiat, those of owd society at
+wawge awe awweady viwtuawwy swamped. The pwowetawian is without
+pwopewty; his wewation to his wife and chiwdwen has nyo wongew
+anything in common with the bouwgeois famiwy-wewations; modewn
+industwiaw wabouw, modewn subjection to capitaw, the same in
+Engwand as in Fwance, in Amewica as in Gewmany, has stwipped him
+of evewy twace of nyationyaw chawactew. Waw, mowawity, wewigion,
+awe to him so many bouwgeois pwejudices, behind which wuwk in
+ambush just as many bouwgeois intewests.
 
-All the preceding classes that got the upper hand, sought to
-fortify their already acquired status by subjecting society at
-large to their conditions of appropriation. The proletarians
-cannot become masters of the productive forces of society, except
-by abolishing their own previous mode of appropriation, and
-thereby also every other previous mode of appropriation. They
-have nothing of their own to secure and to fortify; their mission
-is to destroy all previous securities for, and insurances of,
-individual property.
+Aww the pweceding cwasses that got the uppew hand, sought to
+fowtify theiw awweady acquiwed status by subjecting society at
+wawge to theiw conditions of appwopwiation. The pwowetawians
+cannyot become mastews of the pwoductive fowces of society, except
+by abowishing theiw own pwevious mode of appwopwiation, and
+theweby awso evewy othew pwevious mode of appwopwiation. They
+have nyothing of theiw own to secuwe and to fowtify; theiw mission
+is to destwoy aww pwevious secuwities fow, and insuwances of,
+individuaw pwopewty.
 
-All previous historical movements were movements of minorities,
-or in the interests of minorities. The proletarian movement is
-the self-conscious, independent movement of the immense majority,
-in the interests of the immense majority. The proletariat, the
-lowest stratum of our present society, cannot stir, cannot raise
-itself up, without the whole superincumbent strata of official
-society being sprung into the air.
+Aww pwevious histowicaw muvments wewe muvments of minyowities,
+ow in the intewests of minyowities. The pwowetawian muvment is
+the sewf-conscious, independent muvment of the immense majowity,
+in the intewests of the immense majowity. The pwowetawiat, the
+wowest stwatum of ouw pwesent society, cannyot stiw, cannyot waise
+itsewf up, without the whowe supewincumbent stwata of officiaw
+society being spwung into the aiw.
 
-Though not in substance, yet in form, the struggle of the
-proletariat with the bourgeoisie is at first a national struggle.
-The proletariat of each country must, of course, first of all
-settle matters with its own bourgeoisie.
+Though nyot in substance, yet in fowm, the stwuggwe of the
+pwowetawiat with the bouwgeoisie is at fiwst a nyationyaw stwuggwe.
+The pwowetawiat of each countwy must, of couwse, fiwst of aww
+settwe mattews with its own bouwgeoisie.
 
-In depicting the most general phases of the development of the
-proletariat, we traced the more or less veiled civil war, raging
-within existing society, up to the point where that war breaks
-out into open revolution, and where the violent overthrow of the
-bourgeoisie lays the foundation for the sway of the proletariat.
+In depicting the most genyewaw phases of the devewopment of the
+pwowetawiat, we twaced the mowe ow wess veiwed civiw waw, waging
+within existing society, up to the point whewe that waw bweaks
+out into open wevowution, and whewe the viowent uvwthwow of the
+bouwgeoisie ways the foundation fow the sway of the pwowetawiat.
 
-Hitherto, every form of society has been based, as we have
-already seen, on the antagonism of oppressing and oppressed
-classes. But in order to oppress a class, certain conditions
-must be assured to it under which it can, at least, continue its
-slavish existence. The serf, in the period of serfdom, raised
-himself to membership in the commune, just as the petty
-bourgeois, under the yoke of feudal absolutism, managed to
-develop into a bourgeois. The modern laborer, on the contrary,
-instead of rising with the progress of industry, sinks deeper and
-deeper below the conditions of existence of his own class. He
-becomes a pauper, and pauperism develops more rapidly than
-population and wealth. And here it becomes evident, that the
-bourgeoisie is unfit any longer to be the ruling class in
+Hithewto, evewy fowm of society has been based, as we have
+awweady seen, on the antagonyism of oppwessing and oppwessed
+cwasses. But in owdew to oppwess a cwass, cewtain conditions
+must be assuwed to it undew which it can, at weast, continyue its
+swavish existence. The sewf, in the pewiod of sewfdom, waised
+himsewf to membewship in the communye, just as the petty
+bouwgeois, undew the yoke of feudaw absowutism, manyaged to
+devewop into a bouwgeois. The modewn wabowew, on the contwawy,
+instead of wising with the pwogwess of industwy, sinks deepew and
+deepew bewow the conditions of existence of his own cwass. He
+becomes a paupew, and paupewism devewops mowe wapidwy than
+popuwation and weawth. And hewe it becomes evident, that the
+bouwgeoisie is unfit any wongew to be the wuwing cwass in
 society, and to impose its conditions of existence upon society
-as an over-riding law. It is unfit to rule because it is
-incompetent to assure an existence to its slave within his
-slavery, because it cannot help letting him sink into such a
+as an uvw-widing waw. It is unfit to wuwe because it is
+incompetent to assuwe an existence to its swave within his
+swavewy, because it cannyot hewp wetting him sink into such a
 state, that it has to feed him, instead of being fed by him.
-Society can no longer live under this bourgeoisie, in other
-words, its existence is no longer compatible with society.
+Society can nyo wongew wive undew this bouwgeoisie, in othew
+wowds, its existence is nyo wongew compatibwe with society.
 
-The essential condition for the existence, and for the sway of
-the bourgeois class, is the formation and augmentation of
-capital; the condition for capital is wage-labour. Wage-labour
-rests exclusively on competition between the laborers. The
-advance of industry, whose involuntary promoter is the
-bourgeoisie, replaces the isolation of the labourers, due to
-competition, by their revolutionary combination, due to
-association. The development of Modern Industry, therefore, cuts
-from under its feet the very foundation on which the bourgeoisie
-produces and appropriates products. What the bourgeoisie,
-therefore, produces, above all, is its own grave-diggers. Its
-fall and the victory of the proletariat are equally inevitable.
+The essentiaw condition fow the existence, and fow the sway of
+the bouwgeois cwass, is the fowmation and augmentation of
+capitaw; the condition fow capitaw is wage-wabouw. Wage-wabouw
+wests excwusivewy on competition between the wabowews. The
+advance of industwy, whose invowuntawy pwomotew is the
+bouwgeoisie, wepwaces the isowation of the wabouwews, due to
+competition, by theiw wevowutionyawy combinyation, due to
+association. The devewopment of Modewn Industwy, thewefowe, cuts
+fwom undew its feet the vewy foundation on which the bouwgeoisie
+pwoduces and appwopwiates pwoducts. What the bouwgeoisie,
+thewefowe, pwoduces, abuv aww, is its own gwave-diggews. Its
+faww and the victowy of the pwowetawiat awe equawwy inyevitabwe.
 
-II. PROLETARIANS AND COMMUNISTS
+II. PWOWETAWIANS AND COMMUNyISTS
 
-In what relation do the Communists stand to the proletarians as a
-whole?
+In what wewation do the Communyists stand to the pwowetawians as a
+whowe?
 
-The Communists do not form a separate party opposed to other
-working-class parties.
+The Communyists do nyot fowm a sepawate pawty opposed to othew
+wowking-cwass pawties.
 
-They have no interests separate and apart from those of the
-proletariat as a whole.
+They have nyo intewests sepawate and apawt fwom those of the
+pwowetawiat as a whowe.
 
-They do not set up any sectarian principles of their own,
-by which to shape and mould the proletarian movement.
+They do nyot set up any sectawian pwincipwes of theiw own,
+by which to shape and mouwd the pwowetawian muvment.
 
-The Communists are distinguished from the other working-class
-parties is only: (1) In the national struggles of the
-proletarians of the different countries, they point out and bring
-to the front the common interests of entire proletariat,
-independently of nationality. (2) In the various stages of
-development which the struggle of the working class against the
-bourgeoisie has to pass through, they always and everywhere
-represent the interests of the movement as a whole.
+The Communyists awe distinguished fwom the othew wowking-cwass
+pawties is onwy: (1) In the nyationyaw stwuggwes of the
+pwowetawians of the diffewent countwies, they point out and bwing
+to the fwont the common intewests of entiwe pwowetawiat,
+independentwy of nyationyawity. (2) In the vawious stages of
+devewopment which the stwuggwe of the wowking cwass against the
+bouwgeoisie has to pass thwough, they awways and evewywhewe
+wepwesent the intewests of the muvment as a whowe.
 
-The Communists, therefore, are on the one hand, practically,
-the most advanced and resolute section of the working-class
-parties of every country, that section which pushes forward all
-others; on the other hand, theoretically, they have over the
-great mass of the proletariat the advantage of clearly
-understanding the line of march, the conditions, and the ultimate
-general results of the proletarian movement.
+The Communyists, thewefowe, awe on the onye hand, pwacticawwy,
+the most advanced and wesowute section of the wowking-cwass
+pawties of evewy countwy, that section which pushes fowwawd aww
+othews; on the othew hand, theoweticawwy, they have uvw the
+gweat mass of the pwowetawiat the advantage of cweawwy
+undewstanding the winye of mawch, the conditions, and the uwtimate
+genyewaw wesuwts of the pwowetawian muvment.
 
-The immediate aim of the Communist is the same as that of all
-the other proletarian parties: formation of the proletariat into
-a class, overthrow of the bourgeois supremacy, conquest of
-political power by the proletariat.
+The immediate aim of the Communyist is the same as that of aww
+the othew pwowetawian pawties: fowmation of the pwowetawiat into
+a cwass, uvwthwow of the bouwgeois supwemacy, conquest of
+powiticaw powew by the pwowetawiat.
 
-The theoretical conclusions of the Communists are in no way
-based on ideas or principles that have been invented, or
-discovered, by this or that would-be universal reformer. They
-merely express, in general terms, actual relations springing from
-an existing class struggle, from a historical movement going on
-under our very eyes. The abolition of existing property
-relations is not at all a distinctive feature of Communism.
+The theoweticaw concwusions of the Communyists awe in nyo way
+based on ideas ow pwincipwes that have been invented, ow
+discuvwed, by this ow that wouwd-be unyivewsaw wefowmew. They
+mewewy expwess, in genyewaw tewms, actuaw wewations spwinging fwom
+an existing cwass stwuggwe, fwom a histowicaw muvment going on
+undew ouw vewy eyes. The abowition of existing pwopewty
+wewations is nyot at aww a distinctive featuwe of Communyism.
 
-All property relations in the past have continually been subject
-to historical change consequent upon the change in historical
+Aww pwopewty wewations in the past have continyuawwy been subject
+to histowicaw change consequent upon the change in histowicaw
 conditions.
 
-The French Revolution, for example, abolished feudal property in
-favour of bourgeois property.
+The Fwench Wevowution, fow exampwe, abowished feudaw pwopewty in
+favouw of bouwgeois pwopewty.
 
-The distinguishing feature of Communism is not the abolition of
-property generally, but the abolition of bourgeois property. But
-modern bourgeois private property is the final and most complete
-expression of the system of producing and appropriating products,
-that is based on class antagonisms, on the exploitation of the
+The distinguishing featuwe of Communyism is nyot the abowition of
+pwopewty genyewawwy, but the abowition of bouwgeois pwopewty. But
+modewn bouwgeois pwivate pwopewty is the finyaw and most compwete
+expwession of the system of pwoducing and appwopwiating pwoducts,
+that is based on cwass antagonyisms, on the expwoitation of the
 many by the few.
 
-In this sense, the theory of the Communists may be summed up in
-the single sentence: Abolition of private property.
+In this sense, the theowy of the Communyists may be summed up in
+the singwe sentence: Abowition of pwivate pwopewty.
 
-We Communists have been reproached with the desire of abolishing
-the right of personally acquiring property as the fruit of a
-man's own labour, which property is alleged to be the groundwork
-of all personal freedom, activity and independence.
+We Communyists have been wepwoached with the desiwe of abowishing
+the wight of pewsonyawwy acquiwing pwopewty as the fwuit of a
+man's own wabouw, which pwopewty is awweged to be the gwoundwowk
+of aww pewsonyaw fweedom, activity and independence.
 
-Hard-won, self-acquired, self-earned property! Do you mean the
-property of the petty artisan and of the small peasant, a form of
-property that preceded the bourgeois form? There is no need to
-abolish that; the development of industry has to a great extent
-already destroyed it, and is still destroying it daily.
+Hawd-won, sewf-acquiwed, sewf-eawnyed pwopewty >w<  Do you mean the
+pwopewty of the petty awtisan and of the smaww peasant, a fowm of
+pwopewty that pweceded the bouwgeois fowm? Thewe is nyo nyeed to
+abowish that; the devewopment of industwy has to a gweat extent
+awweady destwoyed it, and is stiww destwoying it daiwy.
 
-Or do you mean modern bourgeois private property?
+Ow do you mean modewn bouwgeois pwivate pwopewty?
 
-But does wage-labour create any property for the labourer? Not
-a bit. It creates capital, i.e., that kind of property which
-exploits wage-labour, and which cannot increase except upon
-condition of begetting a new supply of wage-labour for fresh
-exploitation. Property, in its present form, is based on the
-antagonism of capital and wage-labour. Let us examine both sides
-of this antagonism.
+But does wage-wabouw cweate any pwopewty fow the wabouwew? Nyot
+a bit. It cweates capitaw, i.e., that kind of pwopewty which
+expwoits wage-wabouw, and which cannyot incwease except upon
+condition of begetting a nyew suppwy of wage-wabouw fow fwesh
+expwoitation. Pwopewty, in its pwesent fowm, is based on the
+antagonyism of capitaw and wage-wabouw. Wet us examinye both sides
+of this antagonyism.
 
-To be a capitalist, is to have not only a purely personal, but a
-social status in production. Capital is a collective product,
-and only by the united action of many members, nay, in the last
-resort, only by the united action of all members of society,
+To be a capitawist, is to have nyot onwy a puwewy pewsonyaw, but a
+sociaw status in pwoduction. Capitaw is a cowwective pwoduct,
+and onwy by the unyited action of many membews, nyay, in the wast
+wesowt, onwy by the unyited action of aww membews of society,
 can it be set in motion.
 
-Capital is, therefore, not a personal, it is a social power.
+Capitaw is, thewefowe, nyot a pewsonyaw, it is a sociaw powew.
 
-When, therefore, capital is converted into common property, into
-the property of all members of society, personal property is not
-thereby transformed into social property. It is only the social
-character of the property that is changed. It loses its
-class-character.
+When, thewefowe, capitaw is convewted into common pwopewty, into
+the pwopewty of aww membews of society, pewsonyaw pwopewty is nyot
+theweby twansfowmed into sociaw pwopewty. It is onwy the sociaw
+chawactew of the pwopewty that is changed. It woses its
+cwass-chawactew.
 
-Let us now take wage-labour.
+Wet us nyow take wage-wabouw.
 
-The average price of wage-labour is the minimum wage, i.e.,
-that quantum of the means of subsistence, which is absolutely
-requisite in bare existence as a labourer. What, therefore, the
-wage-labourer appropriates by means of his labour, merely
-suffices to prolong and reproduce a bare existence. We by no
-means intend to abolish this personal appropriation of the
-products of labour, an appropriation that is made for the
-maintenance and reproduction of human life, and that leaves no
-surplus wherewith to command the labour of others. All that we
-want to do away with, is the miserable character of this
-appropriation, under which the labourer lives merely to increase
-capital, and is allowed to live only in so far as the interest of
-the ruling class requires it.
+The avewage pwice of wage-wabouw is the minyimum wage, i.e.,
+that quantum of the means of subsistence, which is absowutewy
+wequisite in bawe existence as a wabouwew. What, thewefowe, the
+wage-wabouwew appwopwiates by means of his wabouw, mewewy
+suffices to pwowong and wepwoduce a bawe existence. We by nyo
+means intend to abowish this pewsonyaw appwopwiation of the
+pwoducts of wabouw, an appwopwiation that is made fow the
+maintenyance and wepwoduction of human wife, and that weaves nyo
+suwpwus whewewith to command the wabouw of othews. Aww that we
+want to do away with, is the misewabwe chawactew of this
+appwopwiation, undew which the wabouwew wives mewewy to incwease
+capitaw, and is awwowed to wive onwy in so faw as the intewest of
+the wuwing cwass wequiwes it.
 
-In bourgeois society, living labour is but a means to increase
-accumulated labour. In Communist society, accumulated labour
-is but a means to widen, to enrich, to promote the existence
-of the labourer.
+In bouwgeois society, wiving wabouw is but a means to incwease
+accumuwated wabouw. In Communyist society, accumuwated wabouw
+is but a means to widen, to enwich, to pwomote the existence
+of the wabouwew.
 
-In bourgeois society, therefore, the past dominates the present;
-in Communist society, the present dominates the past. In
-bourgeois society capital is independent and has individuality,
-while the living person is dependent and has no individuality.
+In bouwgeois society, thewefowe, the past dominyates the pwesent;
+in Communyist society, the pwesent dominyates the past. In
+bouwgeois society capitaw is independent and has individuawity,
+whiwe the wiving pewson is dependent and has nyo individuawity.
 
-And the abolition of this state of things is called by the
-bourgeois, abolition of individuality and freedom! And rightly
-so. The abolition of bourgeois individuality, bourgeois
-independence, and bourgeois freedom is undoubtedly aimed at.
+And the abowition of this state of things is cawwed by the
+bouwgeois, abowition of individuawity and fweedom >w<  And wightwy
+so. The abowition of bouwgeois individuawity, bouwgeois
+independence, and bouwgeois fweedom is undoubtedwy aimed at.
 
-By freedom is meant, under the present bourgeois conditions of
-production, free trade, free selling and buying.
-But if selling and buying disappears, free selling and buying
-disappears also. This talk about free selling and buying, and
-all the other "brave words" of our bourgeoisie about freedom in
-general, have a meaning, if any, only in contrast with restricted
-selling and buying, with the fettered traders of the Middle Ages,
-but have no meaning when opposed to the Communistic abolition of
-buying and selling, of the bourgeois conditions of production,
-and of the bourgeoisie itself.
+By fweedom is meant, undew the pwesent bouwgeois conditions of
+pwoduction, fwee twade, fwee sewwing and buying.
+But if sewwing and buying disappeaws, fwee sewwing and buying
+disappeaws awso. This tawk about fwee sewwing and buying, and
+aww the othew "bwave wowds" of ouw bouwgeoisie about fweedom in
+genyewaw, have a meanying, if any, onwy in contwast with westwicted
+sewwing and buying, with the fettewed twadews of the Middwe Ages,
+but have nyo meanying when opposed to the Communyistic abowition of
+buying and sewwing, of the bouwgeois conditions of pwoduction,
+and of the bouwgeoisie itsewf.
 
-You are horrified at our intending to do away with private
-property. But in your existing society, private property is
-already done away with for nine-tenths of the population; its
-existence for the few is solely due to its non-existence in the
-hands of those nine-tenths. You reproach us, therefore, with
-intending to do away with a form of property, the necessary
-condition for whose existence is the non-existence of any
-property for the immense majority of society.
+You awe howwified at ouw intending to do away with pwivate
+pwopewty. But in youw existing society, pwivate pwopewty is
+awweady donye away with fow nyinye-tenths of the popuwation; its
+existence fow the few is sowewy due to its nyon-existence in the
+hands of those nyinye-tenths. You wepwoach us, thewefowe, with
+intending to do away with a fowm of pwopewty, the nyecessawy
+condition fow whose existence is the nyon-existence of any
+pwopewty fow the immense majowity of society.
 
-In one word, you reproach us with intending to do away with your
-property. Precisely so; that is just what we intend.
+In onye wowd, you wepwoach us with intending to do away with youw
+pwopewty. Pwecisewy so; that is just what we intend.
 
-From the moment when labour can no longer be converted into
-capital, money, or rent, into a social power capable of being
-monopolised, i.e., from the moment when individual property can
-no longer be transformed into bourgeois property, into capital,
-from that moment, you say individuality vanishes.
+Fwom the moment when wabouw can nyo wongew be convewted into
+capitaw, monyey, ow went, into a sociaw powew capabwe of being
+monyopowised, i.e., fwom the moment when individuaw pwopewty can
+nyo wongew be twansfowmed into bouwgeois pwopewty, into capitaw,
+fwom that moment, you say individuawity vanyishes.
 
-You must, therefore, confess that by "individual" you mean no
-other person than the bourgeois, than the middle-class owner of
-property. This person must, indeed, be swept out of the way, and
-made impossible.
+You must, thewefowe, confess that by "individuaw" you mean nyo
+othew pewson than the bouwgeois, than the middwe-cwass ownyew of
+pwopewty. This pewson must, indeed, be swept out of the way, and
+made impossibwe.
 
-Communism deprives no man of the power to appropriate the
-products of society; all that it does is to deprive him of the
-power to subjugate the labour of others by means of such
-appropriation.
+Communyism depwives nyo man of the powew to appwopwiate the
+pwoducts of society; aww that it does is to depwive him of the
+powew to subjugate the wabouw of othews by means of such
+appwopwiation.
 
-It has been objected that upon the abolition of private property
-all work will cease, and universal laziness will overtake us.
+It has been objected that upon the abowition of pwivate pwopewty
+aww wowk wiww cease, and unyivewsaw wazinyess wiww uvwtake us.
 
-According to this, bourgeois society ought long ago to have gone
-to the dogs through sheer idleness; for those of its members who
-work, acquire nothing, and those who acquire anything, do not
-work. The whole of this objection is but another expression of
-the tautology: that there can no longer be any wage-labour when
-there is no longer any capital.
+Accowding to this, bouwgeois society ought wong ago to have gonye
+to the dogs thwough sheew idwenyess; fow those of its membews who
+wowk, acquiwe nyothing, and those who acquiwe anything, do nyot
+wowk. The whowe of this objection is but anyothew expwession of
+the tautowogy: that thewe can nyo wongew be any wage-wabouw when
+thewe is nyo wongew any capitaw.
 
-All objections urged against the Communistic mode of producing
-and appropriating material products, have, in the same way, been
-urged against the Communistic modes of producing and
-appropriating intellectual products. Just as, to the bourgeois,
-the disappearance of class property is the disappearance of
-production itself, so the disappearance of class culture is to
-him identical with the disappearance of all culture.
+Aww objections uwged against the Communyistic mode of pwoducing
+and appwopwiating matewiaw pwoducts, have, in the same way, been
+uwged against the Communyistic modes of pwoducing and
+appwopwiating intewwectuaw pwoducts. Just as, to the bouwgeois,
+the disappeawance of cwass pwopewty is the disappeawance of
+pwoduction itsewf, so the disappeawance of cwass cuwtuwe is to
+him identicaw with the disappeawance of aww cuwtuwe.
 
-That culture, the loss of which he laments, is, for the enormous
-majority, a mere training to act as a machine.
+That cuwtuwe, the woss of which he waments, is, fow the enyowmous
+majowity, a mewe twainying to act as a machinye.
 
-But don't wrangle with us so long as you apply, to our intended
-abolition of bourgeois property, the standard of your bourgeois
-notions of freedom, culture, law, etc. Your very ideas are but
-the outgrowth of the conditions of your bourgeois production and
-bourgeois property, just as your jurisprudence is but the will of
-your class made into a law for all, a will, whose essential
-character and direction are determined by the economical
-conditions of existence of your class.
+But don't wwangwe with us so wong as you appwy, to ouw intended
+abowition of bouwgeois pwopewty, the standawd of youw bouwgeois
+nyotions of fweedom, cuwtuwe, waw, etc. Youw vewy ideas awe but
+the outgwowth of the conditions of youw bouwgeois pwoduction and
+bouwgeois pwopewty, just as youw juwispwudence is but the wiww of
+youw cwass made into a waw fow aww, a wiww, whose essentiaw
+chawactew and diwection awe detewminyed by the econyomicaw
+conditions of existence of youw cwass.
 
-The selfish misconception that induces you to transform into
-eternal laws of nature and of reason, the social forms springing
-from your present mode of production and form of
-property-historical relations that rise and disappear in the
-progress of production -- this misconception you share with every
-ruling class that has preceded you. What you see clearly in the
-case of ancient property, what you admit in the case of feudal
-property, you are of course forbidden to admit in the case of
-your own bourgeois form of property.
+The sewfish misconception that induces you to twansfowm into
+etewnyaw waws of nyatuwe and of weason, the sociaw fowms spwinging
+fwom youw pwesent mode of pwoduction and fowm of
+pwopewty-histowicaw wewations that wise and disappeaw in the
+pwogwess of pwoduction -- this misconception you shawe with evewy
+wuwing cwass that has pweceded you. What you see cweawwy in the
+case of ancient pwopewty, what you admit in the case of feudaw
+pwopewty, you awe of couwse fowbidden to admit in the case of
+youw own bouwgeois fowm of pwopewty.
 
-Abolition of the family! Even the most radical flare up at this
-infamous proposal of the Communists.
+Abowition of the famiwy ;;w;;  Even the most wadicaw fwawe up at this
+infamous pwoposaw of the Communyists.
 
-On what foundation is the present family, the bourgeois family,
-based? On capital, on private gain. In its completely developed
-form this family exists only among the bourgeoisie. But this
-state of things finds its complement in the practical absence of
-the family among the proletarians, and in public prostitution.
+On what foundation is the pwesent famiwy, the bouwgeois famiwy,
+based? On capitaw, on pwivate gain. In its compwetewy devewoped
+fowm this famiwy exists onwy among the bouwgeoisie. But this
+state of things finds its compwement in the pwacticaw absence of
+the famiwy among the pwowetawians, and in pubwic pwostitution.
 
-The bourgeois family will vanish as a matter of course when its
-complement vanishes, and both will vanish with the vanishing of
-capital.
+The bouwgeois famiwy wiww vanyish as a mattew of couwse when its
+compwement vanyishes, and both wiww vanyish with the vanyishing of
+capitaw.
 
-Do you charge us with wanting to stop the exploitation of
-children by their parents? To this crime we plead guilty.
+Do you chawge us with wanting to stop the expwoitation of
+chiwdwen by theiw pawents? To this cwime we pwead guiwty.
 
-But, you will say, we destroy the most hallowed of relations,
-when we replace home education by social.
+But, you wiww say, we destwoy the most hawwowed of wewations,
+when we wepwace home education by sociaw.
 
-And your education! Is not that also social, and determined by
-the social conditions under which you educate, by the
-intervention, direct or indirect, of society, by means of
-schools, etc.? The Communists have not invented the
-intervention of society in education; they do but seek to alter
-the character of that intervention, and to rescue education from
-the influence of the ruling class.
+And youw education ^w^  Is nyot that awso sociaw, and detewminyed by
+the sociaw conditions undew which you educate, by the
+intewvention, diwect ow indiwect, of society, by means of
+schoows, etc.? The Communyists have nyot invented the
+intewvention of society in education; they do but seek to awtew
+the chawactew of that intewvention, and to wescue education fwom
+the infwuence of the wuwing cwass.
 
-The bourgeois clap-trap about the family and education, about
-the hallowed co-relation of parent and child, becomes all the
-more disgusting, the more, by the action of Modern Industry, all
-family ties among the proletarians are torn asunder, and their
-children transformed into simple articles of commerce and
-instruments of labour.
+The bouwgeois cwap-twap about the famiwy and education, about
+the hawwowed co-wewation of pawent and chiwd, becomes aww the
+mowe disgusting, the mowe, by the action of Modewn Industwy, aww
+famiwy ties among the pwowetawians awe town asundew, and theiw
+chiwdwen twansfowmed into simpwe awticwes of commewce and
+instwuments of wabouw.
 
-But you Communists would introduce community of women, screams
-the whole bourgeoisie in chorus.
+But you Communyists wouwd intwoduce communyity of women, scweams
+the whowe bouwgeoisie in chowus.
 
-The bourgeois sees in his wife a mere instrument of production.
-He hears that the instruments of production are to be exploited
-in common, and, naturally, can come to no other conclusion than
-that the lot of being common to all will likewise fall to the
+The bouwgeois sees in his wife a mewe instwument of pwoduction.
+He heaws that the instwuments of pwoduction awe to be expwoited
+in common, and, nyatuwawwy, can come to nyo othew concwusion than
+that the wot of being common to aww wiww wikewise faww to the
 women.
 
-He has not even a suspicion that the real point is to do away
-with the status of women as mere instruments of production.
+He has nyot even a suspicion that the weaw point is to do away
+with the status of women as mewe instwuments of pwoduction.
 
-For the rest, nothing is more ridiculous than the
-virtuous indignation of our bourgeois at the community of women
-which, they pretend, is to be openly and officially established
-by the Communists. The Communists have no need to introduce
-community of women; it has existed almost from time immemorial.
+Fow the west, nyothing is mowe widicuwous than the
+viwtuous indignyation of ouw bouwgeois at the communyity of women
+which, they pwetend, is to be openwy and officiawwy estabwished
+by the Communyists. The Communyists have nyo nyeed to intwoduce
+communyity of women; it has existed awmost fwom time immemowiaw.
 
-Our bourgeois, not content with having the wives and daughters
-of their proletarians at their disposal, not to speak of common
-prostitutes, take the greatest pleasure in seducing each other's
+Ouw bouwgeois, nyot content with having the wives and daughtews
+of theiw pwowetawians at theiw disposaw, nyot to speak of common
+pwostitutes, take the gweatest pweasuwe in seducing each othew's
 wives.
 
-Bourgeois marriage is in reality a system of wives in common and
-thus, at the most, what the Communists might possibly be
-reproached with, is that they desire to introduce, in
-substitution for a hypocritically concealed, an openly legalised
-community of women. For the rest, it is self-evident that the
-abolition of the present system of production must bring with it
-the abolition of the community of women springing from that
-system, i.e., of prostitution both public and private.
+Bouwgeois mawwiage is in weawity a system of wives in common and
+thus, at the most, what the Communyists might possibwy be
+wepwoached with, is that they desiwe to intwoduce, in
+substitution fow a hypocwiticawwy conceawed, an openwy wegawised
+communyity of women. Fow the west, it is sewf-evident that the
+abowition of the pwesent system of pwoduction must bwing with it
+the abowition of the communyity of women spwinging fwom that
+system, i.e., of pwostitution both pubwic and pwivate.
 
-The Communists are further reproached with desiring to abolish
-countries and nationality.
+The Communyists awe fuwthew wepwoached with desiwing to abowish
+countwies and nyationyawity.
 
-The working men have no country. We cannot take from them what
-they have not got. Since the proletariat must first of all
-acquire political supremacy, must rise to be the leading class of
-the nation, must constitute itself the nation, it is, so far,
-itself national, though not in the bourgeois sense of the word.
+The wowking men have nyo countwy. We cannyot take fwom them what
+they have nyot got. Since the pwowetawiat must fiwst of aww
+acquiwe powiticaw supwemacy, must wise to be the weading cwass of
+the nyation, must constitute itsewf the nyation, it is, so faw,
+itsewf nyationyaw, though nyot in the bouwgeois sense of the wowd.
 
-National differences and antagonisms between peoples are daily
-more and more vanishing, owing to the development of the
-bourgeoisie, to freedom of commerce, to the world-market, to
-uniformity in the mode of production and in the conditions of
-life corresponding thereto.
+Nyationyaw diffewences and antagonyisms between peopwes awe daiwy
+mowe and mowe vanyishing, owing to the devewopment of the
+bouwgeoisie, to fweedom of commewce, to the wowwd-mawket, to
+unyifowmity in the mode of pwoduction and in the conditions of
+wife cowwesponding theweto.
 
-The supremacy of the proletariat will cause them to vanish still
-faster. United action, of the leading civilised countries at
-least, is one of the first conditions for the emancipation of
-the proletariat.
+The supwemacy of the pwowetawiat wiww cause them to vanyish stiww
+fastew. Unyited action, of the weading civiwised countwies at
+weast, is onye of the fiwst conditions fow the emancipation of
+the pwowetawiat.
 
-In proportion as the exploitation of one individual by another
-is put an end to, the exploitation of one nation by another will
-also be put an end to. In proportion as the antagonism between
-classes within the nation vanishes, the hostility of one nation
-to another will come to an end.
+In pwopowtion as the expwoitation of onye individuaw by anyothew
+is put an end to, the expwoitation of onye nyation by anyothew wiww
+awso be put an end to. In pwopowtion as the antagonyism between
+cwasses within the nyation vanyishes, the hostiwity of onye nyation
+to anyothew wiww come to an end.
 
-The charges against Communism made from a religious, a
-philosophical, and, generally, from an ideological standpoint,
-are not deserving of serious examination.
+The chawges against Communyism made fwom a wewigious, a
+phiwosophicaw, and, genyewawwy, fwom an ideowogicaw standpoint,
+awe nyot desewving of sewious examinyation.
 
-Does it require deep intuition to comprehend that man's ideas,
-views and conceptions, in one word, man's consciousness, changes
-with every change in the conditions of his material existence, in
-his social relations and in his social life?
+Does it wequiwe deep intuition to compwehend that man's ideas,
+views and conceptions, in onye wowd, man's consciousnyess, changes
+with evewy change in the conditions of his matewiaw existence, in
+his sociaw wewations and in his sociaw wife?
 
-What else does the history of ideas prove, than that
-intellectual production changes its character in proportion as
-material production is changed? The ruling ideas of each age
-have ever been the ideas of its ruling class.
+What ewse does the histowy of ideas pwuv, than that
+intewwectuaw pwoduction changes its chawactew in pwopowtion as
+matewiaw pwoduction is changed? The wuwing ideas of each age
+have evew been the ideas of its wuwing cwass.
 
-When people speak of ideas that revolutionise society, they do
-but express the fact, that within the old society, the elements
-of a new one have been created, and that the dissolution of the
-old ideas keeps even pace with the dissolution of the old
+When peopwe speak of ideas that wevowutionyise society, they do
+but expwess the fact, that within the owd society, the ewements
+of a nyew onye have been cweated, and that the dissowution of the
+owd ideas keeps even pace with the dissowution of the owd
 conditions of existence.
 
-When the ancient world was in its last throes, the ancient
-religions were overcome by Christianity. When Christian ideas
-succumbed in the 18th century to rationalist ideas, feudal
-society fought its death battle with the then revolutionary
-bourgeoisie. The ideas of religious liberty and freedom of
-conscience merely gave expression to the sway of free competition
-within the domain of knowledge.
+When the ancient wowwd was in its wast thwoes, the ancient
+wewigions wewe uvwcome by Chwistianyity. When Chwistian ideas
+succumbed in the 18th centuwy to wationyawist ideas, feudaw
+society fought its death battwe with the then wevowutionyawy
+bouwgeoisie. The ideas of wewigious wibewty and fweedom of
+conscience mewewy gave expwession to the sway of fwee competition
+within the domain of knyowwedge.
 
-"Undoubtedly," it will be said, "religious, moral, philosophical
-and juridical ideas have been modified in the course of
-historical development. But religion, morality philosophy,
-political science, and law, constantly survived this change."
+"Undoubtedwy," it wiww be said, "wewigious, mowaw, phiwosophicaw
+and juwidicaw ideas have been modified in the couwse of
+histowicaw devewopment. But wewigion, mowawity phiwosophy,
+powiticaw science, and waw, constantwy suwvived this change."
 
-"There are, besides, eternal truths, such as Freedom, Justice,
-etc. that are common to all states of society. But Communism
-abolishes eternal truths, it abolishes all religion, and all
-morality, instead of constituting them on a new basis; it
-therefore acts in contradiction to all past historical
-experience."
+"Thewe awe, besides, etewnyaw twuths, such as Fweedom, Justice,
+etc. that awe common to aww states of society. But Communyism
+abowishes etewnyaw twuths, it abowishes aww wewigion, and aww
+mowawity, instead of constituting them on a nyew basis; it
+thewefowe acts in contwadiction to aww past histowicaw
+expewience."
 
-What does this accusation reduce itself to? The history of all
-past society has consisted in the development of class
-antagonisms, antagonisms that assumed different forms at
-different epochs.
+What does this accusation weduce itsewf to? The histowy of aww
+past society has consisted in the devewopment of cwass
+antagonyisms, antagonyisms that assumed diffewent fowms at
+diffewent epochs.
 
-But whatever form they may have taken, one fact is common to all
-past ages, viz., the exploitation of one part of society by the
-other. No wonder, then, that the social consciousness of past
-ages, despite all the multiplicity and variety it displays,
-moves within certain common forms, or general ideas, which
-cannot completely vanish except with the total disappearance of
-class antagonisms.
+But whatevew fowm they may have taken, onye fact is common to aww
+past ages, viz., the expwoitation of onye pawt of society by the
+othew. Nyo wondew, then, that the sociaw consciousnyess of past
+ages, despite aww the muwtipwicity and vawiety it dispways,
+muvs within cewtain common fowms, ow genyewaw ideas, which
+cannyot compwetewy vanyish except with the totaw disappeawance of
+cwass antagonyisms.
 
-The Communist revolution is the most radical rupture with
-traditional property relations; no wonder that its development
-involves the most radical rupture with traditional ideas.
+The Communyist wevowution is the most wadicaw wuptuwe with
+twaditionyaw pwopewty wewations; nyo wondew that its devewopment
+invowves the most wadicaw wuptuwe with twaditionyaw ideas.
 
-But let us have done with the bourgeois objections to Communism.
+But wet us have donye with the bouwgeois objections to Communyism.
 
-We have seen above, that the first step in the revolution by the
-working class, is to raise the proletariat to the position of
-ruling as to win the battle of democracy.
+We have seen abuv, that the fiwst step in the wevowution by the
+wowking cwass, is to waise the pwowetawiat to the position of
+wuwing as to win the battwe of democwacy.
 
-The proletariat will use its political supremacy to wrest, by
-degrees, all capital from the bourgeoisie, to centralise all
-instruments of production in the hands of the State, i.e., of the
-proletariat organised as the ruling class; and to increase the
-total of productive forces as rapidly as possible.
+The pwowetawiat wiww use its powiticaw supwemacy to wwest, by
+degwees, aww capitaw fwom the bouwgeoisie, to centwawise aww
+instwuments of pwoduction in the hands of the State, i.e., of the
+pwowetawiat owganyised as the wuwing cwass; and to incwease the
+totaw of pwoductive fowces as wapidwy as possibwe.
 
-Of course, in the beginning, this cannot be effected except by
-means of despotic inroads on the rights of property, and on the
-conditions of bourgeois production; by means of measures,
-therefore,
-which appear economically insufficient and untenable, but which,
-in the course of the movement, outstrip themselves, necessitate
-further inroads upon the old social order, and are unavoidable
-as a means of entirely revolutionising the mode of production.
+Of couwse, in the beginnying, this cannyot be effected except by
+means of despotic inwoads on the wights of pwopewty, and on the
+conditions of bouwgeois pwoduction; by means of measuwes,
+thewefowe,
+which appeaw econyomicawwy insufficient and untenyabwe, but which,
+in the couwse of the muvment, outstwip themsewves, nyecessitate
+fuwthew inwoads upon the owd sociaw owdew, and awe unyavoidabwe
+as a means of entiwewy wevowutionyising the mode of pwoduction.
 
-These measures will of course be different in different
-countries.
+These measuwes wiww of couwse be diffewent in diffewent
+countwies.
 
-Nevertheless in the most advanced countries, the following will
-be pretty generally applicable.
+Nyevewthewess in the most advanced countwies, the fowwowing wiww
+be pwetty genyewawwy appwicabwe.
 
-1. Abolition of property in land and application of all rents
-of land to public purposes.
+1. Abowition of pwopewty in wand and appwication of aww wents
+of wand to pubwic puwposes.
 
-2. A heavy progressive or graduated income tax.
+2. A heavy pwogwessive ow gwaduated income tax.
 
-3. Abolition of all right of inheritance.
+3. Abowition of aww wight of inhewitance.
 
-4. Confiscation of the property of all emigrants and rebels.
+4. Confiscation of the pwopewty of aww emigwants and webews.
 
-5. Centralisation of credit in the hands of the State, by means
-of a national bank with State capital and an exclusive
-monopoly.
+5. Centwawisation of cwedit in the hands of the State, by means
+of a nyationyaw bank with State capitaw and an excwusive
+monyopowy.
 
-6. Centralisation of the means of communication and transport
+6. Centwawisation of the means of communyication and twanspowt
 in the hands of the State.
 
-7. Extension of factories and instruments of production owned by
-the State; the bringing into cultivation of waste-lands, and
-the improvement of the soil generally in accordance with a
-common plan.
+7. Extension of factowies and instwuments of pwoduction ownyed by
+the State; the bwinging into cuwtivation of waste-wands, and
+the impwuvment of the soiw genyewawwy in accowdance with a
+common pwan.
 
-8. Equal liability of all to labour. Establishment of
-industrial armies, especially for agriculture.
+8. Equaw wiabiwity of aww to wabouw. Estabwishment of
+industwiaw awmies, especiawwy fow agwicuwtuwe.
 
-9. Combination of agriculture with manufacturing industries;
-gradual abolition of the distinction between town and
-country, by a more equable distribution of the population
-over the country.
+9. Combinyation of agwicuwtuwe with manyufactuwing industwies;
+gwaduaw abowition of the distinction between town and
+countwy, by a mowe equabwe distwibution of the popuwation
+uvw the countwy.
 
-10. Free education for all children in public schools.
-Abolition of children's factory labour in its present form.
-Combination of education with industrial production, &c., &c.
+10. Fwee education fow aww chiwdwen in pubwic schoows.
+Abowition of chiwdwen's factowy wabouw in its pwesent fowm.
+Combinyation of education with industwiaw pwoduction, &c., &c.
 
-When, in the course of development, class distinctions have
-disappeared, and all production has been concentrated in the
-hands of a vast association of the whole nation, the public power
-will lose its political character. Political power, properly so
-called, is merely the organised power of one class for oppressing
-another. If the proletariat during its contest with the
-bourgeoisie is compelled, by the force of circumstances, to
-organise itself as a class, if, by means of a revolution, it
-makes itself the ruling class, and, as such, sweeps away by force
-the old conditions of production, then it will, along with these
-conditions, have swept away the conditions for the existence of
-class antagonisms and of classes generally, and will thereby have
-abolished its own supremacy as a class.
+When, in the couwse of devewopment, cwass distinctions have
+disappeawed, and aww pwoduction has been concentwated in the
+hands of a vast association of the whowe nyation, the pubwic powew
+wiww wose its powiticaw chawactew. Powiticaw powew, pwopewwy so
+cawwed, is mewewy the owganyised powew of onye cwass fow oppwessing
+anyothew. If the pwowetawiat duwing its contest with the
+bouwgeoisie is compewwed, by the fowce of ciwcumstances, to
+owganyise itsewf as a cwass, if, by means of a wevowution, it
+makes itsewf the wuwing cwass, and, as such, sweeps away by fowce
+the owd conditions of pwoduction, then it wiww, awong with these
+conditions, have swept away the conditions fow the existence of
+cwass antagonyisms and of cwasses genyewawwy, and wiww theweby have
+abowished its own supwemacy as a cwass.
 
-In place of the old bourgeois society, with its classes and
-class antagonisms, we shall have an association, in which the
-free development of each is the condition for the free
-development of all.
+In pwace of the owd bouwgeois society, with its cwasses and
+cwass antagonyisms, we shaww have an association, in which the
+fwee devewopment of each is the condition fow the fwee
+devewopment of aww.
 
-III SOCIALIST AND COMMUNIST LITERATURE
+III SOCIAWIST AND COMMUNyIST WITEWATUWE
 
-1. REACTIONARY SOCIALISM
+1. WEACTIONyAWY SOCIAWISM
 
-A. Feudal Socialism
+A. Feudaw Sociawism
 
-Owing to their historical position, it became the vocation of
-the aristocracies of France and England to write pamphlets
-against modern bourgeois society. In the French revolution of
-July 1830, and in the English reform agitation, these
-aristocracies again succumbed to the hateful upstart.
-Thenceforth, a serious political contest was altogether out of
-the question. A literary battle alone remained possible. But
-even in the domain of literature the old cries of the restoration
-period had become impossible.
+Owing to theiw histowicaw position, it became the vocation of
+the awistocwacies of Fwance and Engwand to wwite pamphwets
+against modewn bouwgeois society. In the Fwench wevowution of
+Juwy 1830, and in the Engwish wefowm agitation, these
+awistocwacies again succumbed to the hatefuw upstawt.
+Thencefowth, a sewious powiticaw contest was awtogethew out of
+the question. A witewawy battwe awonye wemainyed possibwe. But
+even in the domain of witewatuwe the owd cwies of the westowation
+pewiod had become impossibwe.
 
-In order to arouse sympathy, the aristocracy were obliged to
-lose sight, apparently, of their own interests, and to formulate
-their indictment against the bourgeoisie in the interest of the
-exploited working class alone. Thus the aristocracy took their
-revenge by singing lampoons on their new master, and whispering
-in his ears sinister prophecies of coming catastrophe.
+In owdew to awouse sympathy, the awistocwacy wewe obwiged to
+wose sight, appawentwy, of theiw own intewests, and to fowmuwate
+theiw indictment against the bouwgeoisie in the intewest of the
+expwoited wowking cwass awonye. Thus the awistocwacy took theiw
+wevenge by singing wampoons on theiw nyew mastew, and whispewing
+in his eaws sinyistew pwophecies of coming catastwophe.
 
-In this way arose Feudal Socialism: half lamentation, half
-lampoon; half echo of the past, half menace of the future; at
-times, by its bitter, witty and incisive criticism, striking the
-bourgeoisie to the very heart's core; but always ludicrous in
-its effect, through total incapacity to comprehend the march of
-modern history.
+In this way awose Feudaw Sociawism: hawf wamentation, hawf
+wampoon; hawf echo of the past, hawf menyace of the futuwe; at
+times, by its bittew, witty and incisive cwiticism, stwiking the
+bouwgeoisie to the vewy heawt's cowe; but awways wudicwous in
+its effect, thwough totaw incapacity to compwehend the mawch of
+modewn histowy.
 
-The aristocracy, in order to rally the people to them, waved the
-proletarian alms-bag in front for a banner. But the people, so
-often as it joined them, saw on their hindquarters the old feudal
-coats of arms, and deserted with loud and irreverent laughter.
+The awistocwacy, in owdew to wawwy the peopwe to them, waved the
+pwowetawian awms-bag in fwont fow a bannyew. But the peopwe, so
+often as it joinyed them, saw on theiw hindquawtews the owd feudaw
+coats of awms, and desewted with woud and iwwevewent waughtew.
 
-One section of the French Legitimists and "Young England"
-exhibited this spectacle.
+Onye section of the Fwench Wegitimists and "Young Engwand"
+exhibited this spectacwe.
 
-In pointing out that their mode of exploitation was different to
-that of the bourgeoisie, the feudalists forget that they
-exploited under circumstances and conditions that were quite
-different, and that are now antiquated. In showing that, under
-their rule, the modern proletariat never existed, they forget
-that the modern bourgeoisie is the necessary offspring of their
-own form of society.
+In pointing out that theiw mode of expwoitation was diffewent to
+that of the bouwgeoisie, the feudawists fowget that they
+expwoited undew ciwcumstances and conditions that wewe quite
+diffewent, and that awe nyow antiquated. In showing that, undew
+theiw wuwe, the modewn pwowetawiat nyevew existed, they fowget
+that the modewn bouwgeoisie is the nyecessawy offspwing of theiw
+own fowm of society.
 
-For the rest, so little do they conceal the reactionary
-character of their criticism that their chief accusation against
-the bourgeoisie amounts to this, that under the bourgeois regime
-a class is being developed, which is destined to cut up root and
-branch the old order of society.
+Fow the west, so wittwe do they conceaw the weactionyawy
+chawactew of theiw cwiticism that theiw chief accusation against
+the bouwgeoisie amounts to this, that undew the bouwgeois wegime
+a cwass is being devewoped, which is destinyed to cut up woot and
+bwanch the owd owdew of society.
 
-What they upbraid the bourgeoisie with is not so much that it
-creates a proletariat, as that it creates a revolutionary
-proletariat.
+What they upbwaid the bouwgeoisie with is nyot so much that it
+cweates a pwowetawiat, as that it cweates a wevowutionyawy
+pwowetawiat.
 
-In political practice, therefore, they join in all coercive
-measures against the working class; and in ordinary life,
-despite their high falutin phrases, they stoop to pick up the
-golden apples dropped from the tree of industry, and to barter
-truth, love, and honour for traffic in wool, beetroot-sugar, and
-potato spirits.
+In powiticaw pwactice, thewefowe, they join in aww coewcive
+measuwes against the wowking cwass; and in owdinyawy wife,
+despite theiw high fawutin phwases, they stoop to pick up the
+gowden appwes dwopped fwom the twee of industwy, and to bawtew
+twuth, wuv, and honyouw fow twaffic in woow, beetwoot-sugaw, and
+potato spiwits.
 
-As the parson has ever gone hand in hand with the landlord,
-so has Clerical Socialism with Feudal Socialism.
+As the pawson has evew gonye hand in hand with the wandwowd,
+so has Cwewicaw Sociawism with Feudaw Sociawism.
 
-Nothing is easier than to give Christian asceticism a Socialist
-tinge. Has not Christianity declaimed against private property,
-against marriage, against the State? Has it not preached in the
-place of these, charity and poverty, celibacy and mortification
-of the flesh, monastic life and Mother Church? Christian
-Socialism is but the holy, water with which the priest
-consecrates the heart-burnings of the aristocrat.
+Nyothing is easiew than to give Chwistian asceticism a Sociawist
+tinge. Has nyot Chwistianyity decwaimed against pwivate pwopewty,
+against mawwiage, against the State? Has it nyot pweached in the
+pwace of these, chawity and puvwty, cewibacy and mowtification
+of the fwesh, monyastic wife and Mothew Chuwch? Chwistian
+Sociawism is but the howy, watew with which the pwiest
+consecwates the heawt-buwnyings of the awistocwat.
 
-B. Petty-Bourgeois Socialism
+B. Petty-Bouwgeois Sociawism
 
-The feudal aristocracy was not the only class that has ruined by
-the bourgeoisie, not the only class whose conditions of existence
-pined and perished in the atmosphere of modern bourgeois society.
-The mediaeval burgesses and the small peasant proprietors were
-the precursors of the modern bourgeoisie. In those countries
-which are but little developed, industrially and commercially,
-these two classes still vegetate side by side with the rising
-bourgeoisie.
+The feudaw awistocwacy was nyot the onwy cwass that has wuinyed by
+the bouwgeoisie, nyot the onwy cwass whose conditions of existence
+pinyed and pewished in the atmosphewe of modewn bouwgeois society.
+The mediaevaw buwgesses and the smaww peasant pwopwietows wewe
+the pwecuwsows of the modewn bouwgeoisie. In those countwies
+which awe but wittwe devewoped, industwiawwy and commewciawwy,
+these two cwasses stiww vegetate side by side with the wising
+bouwgeoisie.
 
-In countries where modern civilisation has become fully
-developed, a new class of petty bourgeois has been formed,
-fluctuating between proletariat and bourgeoisie and ever renewing
-itself as a supplementary part of bourgeois society. The
-individual members of this class, however, are being constantly
-hurled down into the proletariat by the action of competition,
-and, as modern industry develops, they even see the moment
-approaching when they will completely disappear as an independent
-section of modern society, to be replaced, in manufactures,
-agriculture and commerce, by overlookers, bailiffs and shopmen.
+In countwies whewe modewn civiwisation has become fuwwy
+devewoped, a nyew cwass of petty bouwgeois has been fowmed,
+fwuctuating between pwowetawiat and bouwgeoisie and evew wenyewing
+itsewf as a suppwementawy pawt of bouwgeois society. The
+individuaw membews of this cwass, howevew, awe being constantwy
+huwwed down into the pwowetawiat by the action of competition,
+and, as modewn industwy devewops, they even see the moment
+appwoaching when they wiww compwetewy disappeaw as an independent
+section of modewn society, to be wepwaced, in manyufactuwes,
+agwicuwtuwe and commewce, by uvwwookews, baiwiffs and shopmen.
 
-In countries like France, where the peasants constitute far more
-than half of the population, it was natural that writers who
-sided with the proletariat against the bourgeoisie, should use,
-in their criticism of the bourgeois regime, the standard of the
-peasant and petty bourgeois, and from the standpoint of these
-intermediate classes should take up the cudgels for the working
-class. Thus arose petty-bourgeois Socialism. Sismondi was the
-head of this school, not only in France but also in England.
+In countwies wike Fwance, whewe the peasants constitute faw mowe
+than hawf of the popuwation, it was nyatuwaw that wwitews who
+sided with the pwowetawiat against the bouwgeoisie, shouwd use,
+in theiw cwiticism of the bouwgeois wegime, the standawd of the
+peasant and petty bouwgeois, and fwom the standpoint of these
+intewmediate cwasses shouwd take up the cudgews fow the wowking
+cwass. Thus awose petty-bouwgeois Sociawism. Sismondi was the
+head of this schoow, nyot onwy in Fwance but awso in Engwand.
 
-This school of Socialism dissected with great acuteness the
-contradictions in the conditions of modern production. It laid
-bare the hypocritical apologies of economists. It proved,
-incontrovertibly, the disastrous effects of machinery and
-division of labour; the concentration of capital and land in a
-few hands; overproduction and crises; it pointed out the
-inevitable ruin of the petty bourgeois and peasant, the misery of
-the proletariat, the anarchy in production, the crying
-inequalities in the distribution of wealth, the industrial war of
-extermination between nations, the dissolution of old moral
-bonds, of the old family relations, of the old nationalities.
+This schoow of Sociawism dissected with gweat acutenyess the
+contwadictions in the conditions of modewn pwoduction. It waid
+bawe the hypocwiticaw apowogies of econyomists. It pwuvd,
+incontwuvwtibwy, the disastwous effects of machinyewy and
+division of wabouw; the concentwation of capitaw and wand in a
+few hands; uvwpwoduction and cwises; it pointed out the
+inyevitabwe wuin of the petty bouwgeois and peasant, the misewy of
+the pwowetawiat, the anyawchy in pwoduction, the cwying
+inyequawities in the distwibution of weawth, the industwiaw waw of
+extewminyation between nyations, the dissowution of owd mowaw
+bonds, of the owd famiwy wewations, of the owd nyationyawities.
 
-In its positive aims, however, this form of Socialism aspires
-either to restoring the old means of production and of exchange,
-and with them the old property relations, and the old society, or
-to cramping the modern means of production and of exchange,
-within the framework of the old property relations that have
-been, and were bound to be, exploded by those means. In either
-case, it is both reactionary and Utopian.
+In its positive aims, howevew, this fowm of Sociawism aspiwes
+eithew to westowing the owd means of pwoduction and of exchange,
+and with them the owd pwopewty wewations, and the owd society, ow
+to cwamping the modewn means of pwoduction and of exchange,
+within the fwamewowk of the owd pwopewty wewations that have
+been, and wewe bound to be, expwoded by those means. In eithew
+case, it is both weactionyawy and Utopian.
 
-Its last words are: corporate guilds for manufacture,
-patriarchal relations in agriculture.
+Its wast wowds awe: cowpowate guiwds fow manyufactuwe,
+patwiawchaw wewations in agwicuwtuwe.
 
-Ultimately, when stubborn historical facts had dispersed all
-intoxicating effects of self-deception, this form of Socialism
-ended in a miserable fit of the blues.
+Uwtimatewy, when stubbown histowicaw facts had dispewsed aww
+intoxicating effects of sewf-deception, this fowm of Sociawism
+ended in a misewabwe fit of the bwues.
 
-C. German, or "True," Socialism
+C. Gewman, ow "Twue," Sociawism
 
-The Socialist and Communist literature of France, a literature
-that originated under the pressure of a bourgeoisie in power, and
-that was the expression of the struggle against this power, was
-introduced into Germany at a time when the bourgeoisie, in that
-country, had just begun its contest with feudal absolutism.
+The Sociawist and Communyist witewatuwe of Fwance, a witewatuwe
+that owiginyated undew the pwessuwe of a bouwgeoisie in powew, and
+that was the expwession of the stwuggwe against this powew, was
+intwoduced into Gewmany at a time when the bouwgeoisie, in that
+countwy, had just begun its contest with feudaw absowutism.
 
-German philosophers, would-be philosophers, and beaux esprits,
-eagerly seized on this literature, only forgetting, that when
-these writings immigrated from France into Germany, French social
-conditions had not immigrated along with them. In contact with
-German social conditions, this French literature lost all its
-immediate practical significance, and assumed a purely literary
-aspect. Thus, to the German philosophers of the eighteenth
-century, the demands of the first French Revolution were nothing
-more than the demands of "Practical Reason" in general, and the
-utterance of the will of the revolutionary French bourgeoisie
-signified in their eyes the law of pure Will, of Will as it was
-bound to be, of true human Will generally.
+Gewman phiwosophews, wouwd-be phiwosophews, and beaux espwits,
+eagewwy seized on this witewatuwe, onwy fowgetting, that when
+these wwitings immigwated fwom Fwance into Gewmany, Fwench sociaw
+conditions had nyot immigwated awong with them. In contact with
+Gewman sociaw conditions, this Fwench witewatuwe wost aww its
+immediate pwacticaw signyificance, and assumed a puwewy witewawy
+aspect. Thus, to the Gewman phiwosophews of the eighteenth
+centuwy, the demands of the fiwst Fwench Wevowution wewe nyothing
+mowe than the demands of "Pwacticaw Weason" in genyewaw, and the
+uttewance of the wiww of the wevowutionyawy Fwench bouwgeoisie
+signyified in theiw eyes the waw of puwe Wiww, of Wiww as it was
+bound to be, of twue human Wiww genyewawwy.
 
-The world of the German literate consisted solely in bringing
-the new French ideas into harmony with their ancient
-philosophical conscience, or rather, in annexing the French ideas
-without deserting their own philosophic point of view.
+The wowwd of the Gewman witewate consisted sowewy in bwinging
+the nyew Fwench ideas into hawmony with theiw ancient
+phiwosophicaw conscience, ow wathew, in annyexing the Fwench ideas
+without desewting theiw own phiwosophic point of view.
 
-This annexation took place in the same way in which a foreign
-language is appropriated, namely, by translation.
+This annyexation took pwace in the same way in which a foweign
+wanguage is appwopwiated, nyamewy, by twanswation.
 
-It is well known how the monks wrote silly lives of Catholic
-Saints over the manuscripts on which the classical works of
-ancient heathendom had been written. The German literate
-reversed this process with the profane French literature. They
-wrote their philosophical nonsense beneath the French original.
-For instance, beneath the French criticism of the economic
-functions of money, they wrote "Alienation of Humanity," and
-beneath the French criticism of the bourgeois State they wrote
-"dethronement of the Category of the General," and so forth.
+It is weww knyown how the monks wwote siwwy wives of Cathowic
+Saints uvw the manyuscwipts on which the cwassicaw wowks of
+ancient heathendom had been wwitten. The Gewman witewate
+wevewsed this pwocess with the pwofanye Fwench witewatuwe. They
+wwote theiw phiwosophicaw nyonsense benyeath the Fwench owiginyaw.
+Fow instance, benyeath the Fwench cwiticism of the econyomic
+functions of monyey, they wwote "Awienyation of Humanyity," and
+benyeath the Fwench cwiticism of the bouwgeois State they wwote
+"dethwonyement of the Categowy of the Genyewaw," and so fowth.
 
-The introduction of these philosophical phrases at the back of
-the French historical criticisms they dubbed "Philosophy of
-Action," "True Socialism," "German Science of Socialism,"
-"Philosophical Foundation of Socialism," and so on.
+The intwoduction of these phiwosophicaw phwases at the back of
+the Fwench histowicaw cwiticisms they dubbed "Phiwosophy of
+Action," "Twue Sociawism," "Gewman Science of Sociawism,"
+"Phiwosophicaw Foundation of Sociawism," and so on.
 
-The French Socialist and Communist literature was thus completely
-emasculated. And, since it ceased in the hands of the German to express
-the struggle of one class with the other, he felt conscious of having
-overcome "French one-sidedness" and of representing, not true
-requirements, but the requirements of truth; not the interests of the
-proletariat, but the interests of Human Nature, of Man in general, who
-belongs to no class, has no reality, who exists only in the misty realm
-of philosophical fantasy.
+The Fwench Sociawist and Communyist witewatuwe was thus compwetewy
+emascuwated. And, since it ceased in the hands of the Gewman to expwess
+the stwuggwe of onye cwass with the othew, he fewt conscious of having
+uvwcome "Fwench onye-sidednyess" and of wepwesenting, nyot twue
+wequiwements, but the wequiwements of twuth; nyot the intewests of the
+pwowetawiat, but the intewests of Human Nyatuwe, of Man in genyewaw, who
+bewongs to nyo cwass, has nyo weawity, who exists onwy in the misty weawm
+of phiwosophicaw fantasy.
 
-This German Socialism, which took its schoolboy task so seriously
-and solemnly, and extolled its poor stock-in-trade in such
-mountebank fashion, meanwhile gradually lost its pedantic
-innocence.
+This Gewman Sociawism, which took its schoowboy task so sewiouswy
+and sowemnwy, and extowwed its poow stock-in-twade in such
+mountebank fashion, meanwhiwe gwaduawwy wost its pedantic
+innyocence.
 
-The fight of the German, and especially, of the Prussian bourgeoisie,
-against feudal aristocracy and absolute monarchy, in other words, the
-liberal movement, became more earnest.
+The fight of the Gewman, and especiawwy, of the Pwussian bouwgeoisie,
+against feudaw awistocwacy and absowute monyawchy, in othew wowds, the
+wibewaw muvment, became mowe eawnyest.
 
-By this, the long wished-for opportunity was offered to "True"
-Socialism of confronting the political movement with the
-Socialist demands, of hurling the traditional anathemas against
-liberalism, against representative government, against bourgeois
-competition, bourgeois freedom of the press, bourgeois
-legislation, bourgeois liberty and equality, and of preaching to
-the masses that they had nothing to gain, and everything to lose,
-by this bourgeois movement. German Socialism forgot, in the nick
-of time, that the French criticism, whose silly echo it was,
-presupposed the existence of modern bourgeois society, with its
-corresponding economic conditions of existence, and the political
-constitution adapted thereto, the very things whose attainment
-was the object of the pending struggle in Germany.
+By this, the wong wished-fow oppowtunyity was offewed to "Twue"
+Sociawism of confwonting the powiticaw muvment with the
+Sociawist demands, of huwwing the twaditionyaw anyathemas against
+wibewawism, against wepwesentative guvwnment, against bouwgeois
+competition, bouwgeois fweedom of the pwess, bouwgeois
+wegiswation, bouwgeois wibewty and equawity, and of pweaching to
+the masses that they had nyothing to gain, and evewything to wose,
+by this bouwgeois muvment. Gewman Sociawism fowgot, in the nyick
+of time, that the Fwench cwiticism, whose siwwy echo it was,
+pwesupposed the existence of modewn bouwgeois society, with its
+cowwesponding econyomic conditions of existence, and the powiticaw
+constitution adapted theweto, the vewy things whose attainment
+was the object of the pending stwuggwe in Gewmany.
 
-To the absolute governments, with their following of parsons,
-professors, country squires and officials, it served as a welcome
-scarecrow against the threatening bourgeoisie.
+To the absowute guvwnments, with theiw fowwowing of pawsons,
+pwofessows, countwy squiwes and officiaws, it sewved as a wewcome
+scawecwow against the thweatenying bouwgeoisie.
 
-It was a sweet finish after the bitter pills of floggings and
-bullets with which these same governments, just at that time,
-dosed the German working-class risings.
+It was a sweet finyish aftew the bittew piwws of fwoggings and
+buwwets with which these same guvwnments, just at that time,
+dosed the Gewman wowking-cwass wisings.
 
-While this "True" Socialism thus served the governments as a
-weapon for fighting the German bourgeoisie, it, at the same time,
-directly represented a reactionary interest, the interest of the
-German Philistines. In Germany the petty-bourgeois class, a
-relic of the sixteenth century, and since then constantly
-cropping up again under various forms, is the real social basis
+Whiwe this "Twue" Sociawism thus sewved the guvwnments as a
+weapon fow fighting the Gewman bouwgeoisie, it, at the same time,
+diwectwy wepwesented a weactionyawy intewest, the intewest of the
+Gewman Phiwistinyes. In Gewmany the petty-bouwgeois cwass, a
+wewic of the sixteenth centuwy, and since then constantwy
+cwopping up again undew vawious fowms, is the weaw sociaw basis
 of the existing state of things.
 
-To preserve this class is to preserve the existing state of
-things in Germany. The industrial and political supremacy of the
-bourgeoisie threatens it with certain destruction; on the one
-hand, from the concentration of capital; on the other, from the
-rise of a revolutionary proletariat. "True" Socialism appeared
+To pwesewve this cwass is to pwesewve the existing state of
+things in Gewmany. The industwiaw and powiticaw supwemacy of the
+bouwgeoisie thweatens it with cewtain destwuction; on the onye
+hand, fwom the concentwation of capitaw; on the othew, fwom the
+wise of a wevowutionyawy pwowetawiat. "Twue" Sociawism appeawed
 to
-kill these two birds with one stone. It spread like an epidemic.
+kiww these two biwds with onye stonye. It spwead wike an epidemic.
 
-The robe of speculative cobwebs, embroidered with flowers of
-rhetoric, steeped in the dew of sickly sentiment, this
-transcendental robe in which the German Socialists wrapped their
-sorry "eternal truths," all skin and bone, served to wonderfully
-increase the sale of their goods amongst such a public.
+The wobe of specuwative cobwebs, embwoidewed with fwowews of
+whetowic, steeped in the dew of sickwy sentiment, this
+twanscendentaw wobe in which the Gewman Sociawists wwapped theiw
+sowwy "etewnyaw twuths," aww skin and bonye, sewved to wondewfuwwy
+incwease the sawe of theiw goods amongst such a pubwic.
 
-And on its part, German Socialism recognised, more and more, its
-own calling as the bombastic representative of the petty-
-bourgeois Philistine.
+And on its pawt, Gewman Sociawism wecognyised, mowe and mowe, its
+own cawwing as the bombastic wepwesentative of the petty-
+bouwgeois Phiwistinye.
 
-It proclaimed the German nation to be the model nation, and the
-German petty Philistine to be the typical man. To every
-villainous meanness of this model man it gave a hidden, higher,
-Socialistic interpretation, the exact contrary of its real
-character. It went to the extreme length of directly opposing
-the "brutally destructive" tendency of Communism, and of
-proclaiming its supreme and impartial contempt of all class
-struggles. With very few exceptions, all the so-called Socialist
-and Communist publications that now (1847) circulate in Germany
-belong to the domain of this foul and enervating literature.
+It pwocwaimed the Gewman nyation to be the modew nyation, and the
+Gewman petty Phiwistinye to be the typicaw man. To evewy
+viwwainyous meannyess of this modew man it gave a hidden, highew,
+Sociawistic intewpwetation, the exact contwawy of its weaw
+chawactew. It went to the extweme wength of diwectwy opposing
+the "bwutawwy destwuctive" tendency of Communyism, and of
+pwocwaiming its supweme and impawtiaw contempt of aww cwass
+stwuggwes. With vewy few exceptions, aww the so-cawwed Sociawist
+and Communyist pubwications that nyow (1847) ciwcuwate in Gewmany
+bewong to the domain of this fouw and enyewvating witewatuwe.
 
-2. CONSERVATIVE, OR BOURGEOIS, SOCIALISM
+2. CONSEWVATIVE, OW BOUWGEOIS, SOCIAWISM
 
-A part of the bourgeoisie is desirous of redressing social
-grievances, in order to secure the continued existence of
-bourgeois society.
+A pawt of the bouwgeoisie is desiwous of wedwessing sociaw
+gwievances, in owdew to secuwe the continyued existence of
+bouwgeois society.
 
-To this section belong economists, philanthropists,
-humanitarians, improvers of the condition of the working class,
-organisers of charity, members of societies for the prevention of
-cruelty to animals, temperance fanatics, hole-and-corner
-reformers of every imaginable kind. This form of Socialism has,
-moreover, been worked out into complete systems.
+To this section bewong econyomists, phiwanthwopists,
+humanyitawians, impwuvws of the condition of the wowking cwass,
+owganyisews of chawity, membews of societies fow the pwevention of
+cwuewty to anyimaws, tempewance fanyatics, howe-and-cownyew
+wefowmews of evewy imaginyabwe kind. This fowm of Sociawism has,
+moweuvw, been wowked out into compwete systems.
 
-We may site Proudhon's Philosophie de la Misere as an example of
-this form.
+We may site Pwoudhon's Phiwosophie de wa Misewe as an exampwe of
+this fowm.
 
-The Socialistic bourgeois want all the advantages of modern
-social conditions without the struggles and dangers necessarily
-resulting therefrom. They desire the existing state of society
-minus its revolutionary and disintegrating elements. They wish
-for a bourgeoisie without a proletariat. The bourgeoisie
-naturally conceives the world in which it is supreme to be the
-best; and bourgeois Socialism develops this comfortable
-conception into various more or less complete systems. In
-requiring the proletariat to carry out such a system, and thereby
-to march straightway into the social New Jerusalem, it but
-requires in reality, that the proletariat should remain within
-the bounds of existing society, but should cast away all its
-hateful ideas concerning the bourgeoisie.
+The Sociawistic bouwgeois want aww the advantages of modewn
+sociaw conditions without the stwuggwes and dangews nyecessawiwy
+wesuwting thewefwom. They desiwe the existing state of society
+minyus its wevowutionyawy and disintegwating ewements. They wish
+fow a bouwgeoisie without a pwowetawiat. The bouwgeoisie
+nyatuwawwy conceives the wowwd in which it is supweme to be the
+best; and bouwgeois Sociawism devewops this comfowtabwe
+conception into vawious mowe ow wess compwete systems. In
+wequiwing the pwowetawiat to cawwy out such a system, and theweby
+to mawch stwaightway into the sociaw Nyew Jewusawem, it but
+wequiwes in weawity, that the pwowetawiat shouwd wemain within
+the bounds of existing society, but shouwd cast away aww its
+hatefuw ideas concewnying the bouwgeoisie.
 
-A second and more practical, but less systematic, form of this
-Socialism sought to depreciate every revolutionary movement in
-the eyes of the working class, by showing that no mere political
-reform, but only a change in the material conditions of
-existence, in economic relations, could be of any advantage to
-them. By changes in the material conditions of existence, this
-form of Socialism, however, by no means understands abolition of
-the bourgeois relations of production, an abolition that can be
-effected only by a revolution, but administrative reforms, based
-on the continued existence of these relations; reforms,
-therefore, that in no respect affect the relations between
-capital and labour, but, at the best, lessen the cost, and
-simplify the administrative work, of bourgeois government.
+A second and mowe pwacticaw, but wess systematic, fowm of this
+Sociawism sought to depweciate evewy wevowutionyawy muvment in
+the eyes of the wowking cwass, by showing that nyo mewe powiticaw
+wefowm, but onwy a change in the matewiaw conditions of
+existence, in econyomic wewations, couwd be of any advantage to
+them. By changes in the matewiaw conditions of existence, this
+fowm of Sociawism, howevew, by nyo means undewstands abowition of
+the bouwgeois wewations of pwoduction, an abowition that can be
+effected onwy by a wevowution, but adminyistwative wefowms, based
+on the continyued existence of these wewations; wefowms,
+thewefowe, that in nyo wespect affect the wewations between
+capitaw and wabouw, but, at the best, wessen the cost, and
+simpwify the adminyistwative wowk, of bouwgeois guvwnment.
 
-Bourgeois Socialism attains adequate expression, when, and only
-when, it becomes a mere figure of speech.
+Bouwgeois Sociawism attains adequate expwession, when, and onwy
+when, it becomes a mewe figuwe of speech.
 
-Free trade: for the benefit of the working class. Protective
-duties: for the benefit of the working class. Prison Reform: for
-the benefit of the working class. This is the last word and the
-only seriously meant word of bourgeois Socialism.
+Fwee twade: fow the benyefit of the wowking cwass. Pwotective
+duties: fow the benyefit of the wowking cwass. Pwison Wefowm: fow
+the benyefit of the wowking cwass. This is the wast wowd and the
+onwy sewiouswy meant wowd of bouwgeois Sociawism.
 
-It is summed up in the phrase: the bourgeois is a bourgeois --
-for the benefit of the working class.
+It is summed up in the phwase: the bouwgeois is a bouwgeois --
+fow the benyefit of the wowking cwass.
 
-3. CRITICAL-UTOPIAN SOCIALISM AND COMMUNISM
+3. CWITICAW-UTOPIAN SOCIAWISM AND COMMUNyISM
 
-We do not here refer to that literature which, in every great
-modern revolution, has always given voice to the demands of the
-proletariat, such as the writings of Babeuf and others.
+We do nyot hewe wefew to that witewatuwe which, in evewy gweat
+modewn wevowution, has awways given voice to the demands of the
+pwowetawiat, such as the wwitings of Babeuf and othews.
 
-The first direct attempts of the proletariat to attain its own
-ends, made in times of universal excitement, when feudal society
-was being overthrown, these attempts necessarily failed, owing
-to the then undeveloped state of the proletariat, as well as to
-the absence of the economic conditions for its emancipation,
-conditions that had yet to be produced, and could be produced by
-the impending bourgeois epoch alone. The revolutionary
-literature that accompanied these first movements of the
-proletariat had necessarily a reactionary character. It
-inculcated universal asceticism and social levelling in its
-crudest form.
+The fiwst diwect attempts of the pwowetawiat to attain its own
+ends, made in times of unyivewsaw excitement, when feudaw society
+was being uvwthwown, these attempts nyecessawiwy faiwed, owing
+to the then undevewoped state of the pwowetawiat, as weww as to
+the absence of the econyomic conditions fow its emancipation,
+conditions that had yet to be pwoduced, and couwd be pwoduced by
+the impending bouwgeois epoch awonye. The wevowutionyawy
+witewatuwe that accompanyied these fiwst muvments of the
+pwowetawiat had nyecessawiwy a weactionyawy chawactew. It
+incuwcated unyivewsaw asceticism and sociaw wevewwing in its
+cwudest fowm.
 
-The Socialist and Communist systems properly so called, those of
-Saint-Simon, Fourier, Owen and others, spring into existence in
-the early undeveloped period, described above, of the struggle
-between proletariat and bourgeoisie (see Section 1. Bourgeois
-and Proletarians).
+The Sociawist and Communyist systems pwopewwy so cawwed, those of
+Saint-Simon, Fouwiew, Owen and othews, spwing into existence in
+the eawwy undevewoped pewiod, descwibed abuv, of the stwuggwe
+between pwowetawiat and bouwgeoisie (see Section 1. Bouwgeois
+and Pwowetawians).
 
-The founders of these systems see, indeed, the class antagonisms, as
-well as the action of the decomposing elements, in the prevailing form
-of society. But the proletariat, as yet in its infancy, offers to them
-the spectacle of a class without any historical initiative or any
-independent political movement.
+The foundews of these systems see, indeed, the cwass antagonyisms, as
+weww as the action of the decomposing ewements, in the pwevaiwing fowm
+of society. But the pwowetawiat, as yet in its infancy, offews to them
+the spectacwe of a cwass without any histowicaw inyitiative ow any
+independent powiticaw muvment.
 
-Since the development of class antagonism keeps even pace with
-the development of industry, the economic situation, as they find
-it, does not as yet offer to them the material conditions for the
-emancipation of the proletariat. They therefore search after a
-new social science, after new social laws, that are to create
+Since the devewopment of cwass antagonyism keeps even pace with
+the devewopment of industwy, the econyomic situation, as they find
+it, does nyot as yet offew to them the matewiaw conditions fow the
+emancipation of the pwowetawiat. They thewefowe seawch aftew a
+nyew sociaw science, aftew nyew sociaw waws, that awe to cweate
 these conditions.
 
-Historical action is to yield to their personal inventive
-action, historically created conditions of emancipation to
-fantastic ones, and the gradual, spontaneous class-organisation
-of the proletariat to the organisation of society specially
-contrived by these inventors. Future history resolves itself, in
-their eyes, into the propaganda and the practical carrying out of
-their social plans.
+Histowicaw action is to yiewd to theiw pewsonyaw inventive
+action, histowicawwy cweated conditions of emancipation to
+fantastic onyes, and the gwaduaw, spontanyeous cwass-owganyisation
+of the pwowetawiat to the owganyisation of society speciawwy
+contwived by these inventows. Futuwe histowy wesowves itsewf, in
+theiw eyes, into the pwopaganda and the pwacticaw cawwying out of
+theiw sociaw pwans.
 
-In the formation of their plans they are conscious of caring
-chiefly for the interests of the working class, as being the most
-suffering class. Only from the point of view of being the most
-suffering class does the proletariat exist for them.
+In the fowmation of theiw pwans they awe conscious of cawing
+chiefwy fow the intewests of the wowking cwass, as being the most
+suffewing cwass. Onwy fwom the point of view of being the most
+suffewing cwass does the pwowetawiat exist fow them.
 
-The undeveloped state of the class struggle, as well as their
-own surroundings, causes Socialists of this kind to consider
-themselves far superior to all class antagonisms. They want to
-improve the condition of every member of society, even that of
-the most favoured. Hence, they habitually appeal to society at
-large, without distinction of class; nay, by preference, to the
-ruling class. For how can people, when once they understand
-their system, fail to see in it the best possible plan of the
-best possible state of society?
+The undevewoped state of the cwass stwuggwe, as weww as theiw
+own suwwoundings, causes Sociawists of this kind to considew
+themsewves faw supewiow to aww cwass antagonyisms. They want to
+impwuv the condition of evewy membew of society, even that of
+the most favouwed. Hence, they habituawwy appeaw to society at
+wawge, without distinction of cwass; nyay, by pwefewence, to the
+wuwing cwass. Fow how can peopwe, when once they undewstand
+theiw system, faiw to see in it the best possibwe pwan of the
+best possibwe state of society?
 
-Hence, they reject all political, and especially all
-revolutionary, action; they wish to attain their ends by
-peaceful means, and endeavour, by small experiments, necessarily
-doomed to failure, and by the force of example, to pave the way
-for the new social Gospel.
+Hence, they weject aww powiticaw, and especiawwy aww
+wevowutionyawy, action; they wish to attain theiw ends by
+peacefuw means, and endeavouw, by smaww expewiments, nyecessawiwy
+doomed to faiwuwe, and by the fowce of exampwe, to pave the way
+fow the nyew sociaw Gospew.
 
-Such fantastic pictures of future society, painted at a time
-when the proletariat is still in a very undeveloped state and has
-but a fantastic conception of its own position correspond with
-the first instinctive yearnings of that class for a general
-reconstruction of society.
+Such fantastic pictuwes of futuwe society, painted at a time
+when the pwowetawiat is stiww in a vewy undevewoped state and has
+but a fantastic conception of its own position cowwespond with
+the fiwst instinctive yeawnyings of that cwass fow a genyewaw
+weconstwuction of society.
 
-But these Socialist and Communist publications contain also a
-critical element. They attack every principle of existing society.
-Hence they are full of the most valuable materials for the
-enlightenment of the working class. The practical measures
-proposed in them -- such as the abolition of the distinction
-between town and country, of the family, of the carrying on of
-industries for the account of private individuals, and of the wage
-system, the proclamation of social harmony, the conversion of the
-functions of the State into a mere superintendence of production,
-all these proposals, point solely to the disappearance of class
-antagonisms which were, at that time, only just cropping up, and
-which, in these publications, are recognised in their earliest,
-indistinct and undefined forms only. These proposals, therefore,
-are of a purely Utopian character.
+But these Sociawist and Communyist pubwications contain awso a
+cwiticaw ewement. They attack evewy pwincipwe of existing society.
+Hence they awe fuww of the most vawuabwe matewiaws fow the
+enwightenment of the wowking cwass. The pwacticaw measuwes
+pwoposed in them -- such as the abowition of the distinction
+between town and countwy, of the famiwy, of the cawwying on of
+industwies fow the account of pwivate individuaws, and of the wage
+system, the pwocwamation of sociaw hawmony, the convewsion of the
+functions of the State into a mewe supewintendence of pwoduction,
+aww these pwoposaws, point sowewy to the disappeawance of cwass
+antagonyisms which wewe, at that time, onwy just cwopping up, and
+which, in these pubwications, awe wecognyised in theiw eawwiest,
+indistinct and undefinyed fowms onwy. These pwoposaws, thewefowe,
+awe of a puwewy Utopian chawactew.
 
-The significance of Critical-Utopian Socialism and Communism
-bears an inverse relation to historical development. In
-proportion as the modern class struggle develops and takes
-definite shape, this fantastic standing apart from the contest,
-these fantastic attacks on it, lose all practical value and all
-theoretical justification. Therefore, although the originators
-of these systems were, in many respects, revolutionary, their
-disciples have, in every case, formed mere reactionary sects.
-They hold fast by the original views of their masters, in
-opposition to the progressive historical development of the
-proletariat. They, therefore, endeavour, and that consistently,
-to deaden the class struggle and to reconcile the class
-antagonisms. They still dream of experimental realisation of
-their social Utopias, of founding isolated "phalansteres," of
-establishing "Home Colonies," of setting up a "Little Icaria" --
-duodecimo editions of the New Jerusalem -- and to realise all
-these castles in the air, they are compelled to appeal to the
-feelings and purses of the bourgeois. By degrees they sink into
-the category of the reactionary conservative Socialists depicted
-above, differing from these only by more systematic pedantry, and
-by their fanatical and superstitious belief in the miraculous
-effects of their social science.
+The signyificance of Cwiticaw-Utopian Sociawism and Communyism
+beaws an invewse wewation to histowicaw devewopment. In
+pwopowtion as the modewn cwass stwuggwe devewops and takes
+definyite shape, this fantastic standing apawt fwom the contest,
+these fantastic attacks on it, wose aww pwacticaw vawue and aww
+theoweticaw justification. Thewefowe, awthough the owiginyatows
+of these systems wewe, in many wespects, wevowutionyawy, theiw
+discipwes have, in evewy case, fowmed mewe weactionyawy sects.
+They howd fast by the owiginyaw views of theiw mastews, in
+opposition to the pwogwessive histowicaw devewopment of the
+pwowetawiat. They, thewefowe, endeavouw, and that consistentwy,
+to deaden the cwass stwuggwe and to weconciwe the cwass
+antagonyisms. They stiww dweam of expewimentaw weawisation of
+theiw sociaw Utopias, of founding isowated "phawanstewes," of
+estabwishing "Home Cowonyies," of setting up a "Wittwe Icawia" --
+duodecimo editions of the Nyew Jewusawem -- and to weawise aww
+these castwes in the aiw, they awe compewwed to appeaw to the
+feewings and puwses of the bouwgeois. By degwees they sink into
+the categowy of the weactionyawy consewvative Sociawists depicted
+abuv, diffewing fwom these onwy by mowe systematic pedantwy, and
+by theiw fanyaticaw and supewstitious bewief in the miwacuwous
+effects of theiw sociaw science.
 
-They, therefore, violently oppose all political action on the
-part of the working class; such action, according to them, can
-only result from blind unbelief in the new Gospel.
+They, thewefowe, viowentwy oppose aww powiticaw action on the
+pawt of the wowking cwass; such action, accowding to them, can
+onwy wesuwt fwom bwind unbewief in the nyew Gospew.
 
-The Owenites in England, and the Fourierists in France,
-respectively, oppose the Chartists and the Reformistes.
+The Owenyites in Engwand, and the Fouwiewists in Fwance,
+wespectivewy, oppose the Chawtists and the Wefowmistes.
 
-IV. POSITION OF THE COMMUNISTS IN RELATION TO THE
-VARIOUS EXISTING OPPOSITION PARTIES
+IV. POSITION OF THE COMMUNyISTS IN WEWATION TO THE
+VAWIOUS EXISTING OPPOSITION PAWTIES
 
-Section II has made clear the relations of the Communists to the
-existing working-class parties, such as the Chartists in England
-and the Agrarian Reformers in America.
+Section II has made cweaw the wewations of the Communyists to the
+existing wowking-cwass pawties, such as the Chawtists in Engwand
+and the Agwawian Wefowmews in Amewica.
 
-The Communists fight for the attainment of the immediate aims,
-for the enforcement of the momentary interests of the working
-class; but in the movement of the present, they also represent
-and take care of the future of that movement. In France the
-Communists ally themselves with the Social-Democrats, against the
-conservative and radical bourgeoisie, reserving, however, the
-right to take up a critical position in regard to phrases and
-illusions traditionally handed down from the great Revolution.
+The Communyists fight fow the attainment of the immediate aims,
+fow the enfowcement of the momentawy intewests of the wowking
+cwass; but in the muvment of the pwesent, they awso wepwesent
+and take cawe of the futuwe of that muvment. In Fwance the
+Communyists awwy themsewves with the Sociaw-Democwats, against the
+consewvative and wadicaw bouwgeoisie, wesewving, howevew, the
+wight to take up a cwiticaw position in wegawd to phwases and
+iwwusions twaditionyawwy handed down fwom the gweat Wevowution.
 
-In Switzerland they support the Radicals, without losing sight
-of the fact that this party consists of antagonistic elements,
-partly of Democratic Socialists, in the French sense, partly of
-radical bourgeois.
+In Switzewwand they suppowt the Wadicaws, without wosing sight
+of the fact that this pawty consists of antagonyistic ewements,
+pawtwy of Democwatic Sociawists, in the Fwench sense, pawtwy of
+wadicaw bouwgeois.
 
-In Poland they support the party that insists on an agrarian
-revolution as the prime condition for national emancipation, that
-party which fomented the insurrection of Cracow in 1846.
+In Powand they suppowt the pawty that insists on an agwawian
+wevowution as the pwime condition fow nyationyaw emancipation, that
+pawty which fomented the insuwwection of Cwacow in 1846.
 
-In Germany they fight with the bourgeoisie whenever it acts in a
-revolutionary way, against the absolute monarchy, the feudal
-squirearchy, and the petty bourgeoisie.
+In Gewmany they fight with the bouwgeoisie whenyevew it acts in a
+wevowutionyawy way, against the absowute monyawchy, the feudaw
+squiweawchy, and the petty bouwgeoisie.
 
-But they never cease, for a single instant, to instil into the
-working class the clearest possible recognition of the hostile
-antagonism between bourgeoisie and proletariat, in order that the
-German workers may straightaway use, as so many weapons against
-the bourgeoisie, the social and political conditions that the
-bourgeoisie must necessarily introduce along with its supremacy,
-and in order that, after the fall of the reactionary classes in
-Germany, the fight against the bourgeoisie itself may immediately
+But they nyevew cease, fow a singwe instant, to instiw into the
+wowking cwass the cweawest possibwe wecognyition of the hostiwe
+antagonyism between bouwgeoisie and pwowetawiat, in owdew that the
+Gewman wowkews may stwaightaway use, as so many weapons against
+the bouwgeoisie, the sociaw and powiticaw conditions that the
+bouwgeoisie must nyecessawiwy intwoduce awong with its supwemacy,
+and in owdew that, aftew the faww of the weactionyawy cwasses in
+Gewmany, the fight against the bouwgeoisie itsewf may immediatewy
 begin.
 
-The Communists turn their attention chiefly to Germany, because
-that country is on the eve of a bourgeois revolution that is
-bound to be carried out under more advanced conditions of
-European civilisation, and with a much more developed
-proletariat, than that of England was in the seventeenth, and of
-France in the eighteenth century, and because the bourgeois
-revolution in Germany will be but the prelude to an immediately
-following proletarian revolution.
+The Communyists tuwn theiw attention chiefwy to Gewmany, because
+that countwy is on the eve of a bouwgeois wevowution that is
+bound to be cawwied out undew mowe advanced conditions of
+Euwopean civiwisation, and with a much mowe devewoped
+pwowetawiat, than that of Engwand was in the seventeenth, and of
+Fwance in the eighteenth centuwy, and because the bouwgeois
+wevowution in Gewmany wiww be but the pwewude to an immediatewy
+fowwowing pwowetawian wevowution.
 
-In short, the Communists everywhere support every revolutionary
-movement against the existing social and political order of
+In showt, the Communyists evewywhewe suppowt evewy wevowutionyawy
+muvment against the existing sociaw and powiticaw owdew of
 things.
 
-In all these movements they bring to the front, as the leading
-question in each, the property question, no matter what its
-degree of development at the time.
+In aww these muvments they bwing to the fwont, as the weading
+question in each, the pwopewty question, nyo mattew what its
+degwee of devewopment at the time.
 
-Finally, they labour everywhere for the union and agreement of
-the democratic parties of all countries.
+Finyawwy, they wabouw evewywhewe fow the unyion and agweement of
+the democwatic pawties of aww countwies.
 
-The Communists disdain to conceal their views and aims.
-They openly declare that their ends can be attained only by
-the forcible overthrow of all existing social conditions.
-Let the ruling classes tremble at a Communistic revolution.
-The proletarians have nothing to lose but their chains.
-They have a world to win.
+The Communyists disdain to conceaw theiw views and aims.
+They openwy decwawe that theiw ends can be attainyed onwy by
+the fowcibwe uvwthwow of aww existing sociaw conditions.
+Wet the wuwing cwasses twembwe at a Communyistic wevowution.
+The pwowetawians have nyothing to wose but theiw chains.
+They have a wowwd to win.
 
-WORKING MEN OF ALL COUNTRIES, UNITE!
-
+WOWKING MEN OF AWW COUNTWIES, UNyITE (・`ω´・) 
