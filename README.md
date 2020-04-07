@@ -31,7 +31,8 @@ BDFL: @aveao
 - One may not send a PR with a content that's too similar to one that's already in voting. This is up to discretion of the BDFL, but may also be automated in the future.
 - - You should wait until the other PR is closed or merged.
 - - If it gets merged, you may send a PR with your changes.
-- No spam. File contents may not include email or physical addresses, phone numbers, website addresses etc. Nothing copyrighted.
+- No spam. File contents may not include physical addresses or phone numbers. Website addresses are allowed as long as their intent is not spam.
+- - Nothing copyrighted.
 - - Basically, nothing that may get this repo banned, at BDFL's discretion.
 - - Please also try to keep PR sizes not-huge, so that Github doesn't block the repo.
 
