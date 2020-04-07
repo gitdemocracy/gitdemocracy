@@ -40,8 +40,10 @@ BDFL: @aveao
 
 - `.md` files. As this repo is on Github, they'll be rendered with [GFM](https://help.github.com/en/github/writing-on-github/basic-writing-and-formatting-syntax), so keep that in mind if you want your PRs to look good.
 - `.txt` files
+- `.tex` files
 - Code files. If you're pushing an entire project, please try to contain it in a relevant folder.
 - - Nothing that's binary. This includes but isn't limited to build artifacts, images or any other assets.
+- - - Things like icons may be used in form of byte arrays or be procedurally generated.
 
 ### Banned files
 
