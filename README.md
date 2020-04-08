@@ -16,12 +16,12 @@ BDFL: @aveao
 - - You may only have 3 (three) PRs open-for-voting at once.
 - - PRs currently accepting votes may not be updated. Updating it will get it closed. This behavior may changed in the future to merge the inital proposal.
 - Each PR that's being voted on has a day (24 hours). 
-- - After this period, it'll either be merged or closed, based on the majority of votes.
+  - After this period, it'll either be merged or closed, based on the majority of votes.
 - You may vote for or against the PR by reacting to it with a :thumbsup: or a :thumbsdown:.
-- - **Only accounts created before 2020-01-01 00:00 (UTC) may vote.**
+  - **Only accounts created before 2020-01-01 00:00 (UTC) may vote.**
 - Use issues for WIP PRs.
-- - Don't submit others' WIP PRs unless they haven't replied to mentions in the thread for 7 days (168 hours).
-- - - Abusing this behavior (both as OP or wannabe PR submitter) will get you banned from the organization.
+  - Don't submit others' WIP PRs unless they haven't replied to mentions in the thread for 7 days (168 hours).
+    - Abusing this behavior (both as OP or wannabe PR submitter) will get you banned from the organization.
 
 ### Content Rules
 
