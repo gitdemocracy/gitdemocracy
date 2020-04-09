@@ -7346,31 +7346,31 @@ opened up by the Social Revolution.
 
 **DEPARTMENTS OF SEINE AND SEINE-ET-OISE**
 
-  ---------------------------------------- -----------
-  Number of inhabitants in 1889            3,900,000
-  Area in acres                            1,507,300
-  Average number of inhabitants per acre   2.6
-  ---------------------------------------- -----------
+| <!-- --> | <!-- --> |
+| - | - |
+| Number of inhabitants in 1889          | 3,900,000 |
+| Area in acres                          | 1,507,300 |
+| Average number of inhabitants per acre | 2.6 |
 
 **Areas to be cultivated to feed the inhabitants (in acres):**
 
-  ----------------------------------------------------- -----------------------
-  Corn and cereals                                      494,000
-  Natural and artificial meadows                        494,000
-  Vegetables and fruit                                  from 17,300 to 25,000
-  Leaving a balance for houses, roads, parks, forests   494,000
-  ----------------------------------------------------- -----------------------
+| <!-- --> | <!-- --> |
+| - | - |
+| Corn and cereals                                    | 494,000 |
+| Natural and artificial meadows                       | 494,000 |
+| Vegetables and fruit                                | from 17,300 to 25,000 |
+| Leaving a balance for houses, roads, parks, forests | 494,000 |
 
 **Quantity of annual work necessary to improve and cultivate the above
 surfaces in five-hour work-days:**
 
-  --------------------------------------------- ------------
-  Cereals (culture and crop)                    15,000,000
-  Meadows, milk, rearing of cattle              10,000,000
-  Market-gardening culture, high-class fruit,   33,000,000
-  Extras                                        12,000,000
-  Total                                         70,000,000
-  --------------------------------------------- ------------
+| <!-- --> | <!-- --> |
+| - | - |
+| Cereals (culture and crop)                  | 15,000,000 |
+| Meadows, milk, rearing of cattle            | 10,000,000 |
+| Market-gardening culture, high-class fruit, | 33,000,000 |
+| Extras                                      | 12,000,000 |
+| Total                                       | 70,000,000 |
 
 [^1]: For the International Paris Exhibitions of 1889 and 1900.
 
